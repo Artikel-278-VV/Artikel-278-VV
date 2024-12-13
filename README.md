@@ -11,7 +11,7 @@ Weblinks zu den **Dokumenten**:
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-[![alt text](http://beginnerlinuxtutorial.com/wp-content/uploads/2014/05/Linux-Shell-Script.png "Logo Title Text 1")](https://youtu.be/RprgaSB08rc?si=d9wLSAM7N5EPdbRe)
+[![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://youtu.be/RprgaSB08rc?si=d9wLSAM7N5EPdbRe)
 
 
 ![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Netfilter-packet-flow.svg/800px-Netfilter-packet-flow.svg.png "Logo Title Text 1")
