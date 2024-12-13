@@ -13,7 +13,4 @@ Weblinks zu den **Dokumenten**:
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://youtu.be/RprgaSB08rc?si=d9wLSAM7N5EPdbRe)
 
-
-![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/3/37/Netfilter-packet-flow.svg/800px-Netfilter-packet-flow.svg.png "Logo Title Text 1")
-
-Source: [Wikipedia](https://de.wikipedia.org/wiki/Netfilter)
+Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles)
