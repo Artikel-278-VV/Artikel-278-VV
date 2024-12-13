@@ -16,5 +16,3 @@ Weblinks zu den **Dokumenten**:
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://youtu.be/RprgaSB08rc?si=d9wLSAM7N5EPdbRe)
 
 Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles)
-
-[![alt text](https://drive.proton.me/u/1/3piSoxdn87hbz181Y9HQf6UIA38kMli_Dd5kiiwmK5tPViZWDfIdTaRqZ9hOfShN-GAJPHmO4gQ6S3y6fmSGRw==/file/lyXONOssZ7LItKwjeS3cqhQ_aSz59Y-G6G6uo8eK_sQR5Sye-7mSyIZiDo9MhuMgtFCnbntU9mzyUbpB76dWXQ==?r=/3piSoxdn87hbz181Y9HQf6UIA38kMli_Dd5kiiwmK5tPViZWDfIdTaRqZ9hOfShN-GAJPHmO4gQ6S3y6fmSGRw==/folder/Y5alPC1NSbTI7jtKzghQL8YXRlhwJR6F52U4DlT0jrfMnO2aQEK4WYR-hDSGlqgixSQPoynUrwd0-urGZHJAmw==)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
