@@ -11,7 +11,8 @@ Weblinks zu den Dokumenten:
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RprgaSB08rc?si=juSSBwPbDheHJZBa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<a href="<a href="http://www.youtube.com/watch?feature=player_embedded&v=5T1Cc6WBx-Q" target="_blank">" target="_blank">
+
 
 ### Linux Shell
 
