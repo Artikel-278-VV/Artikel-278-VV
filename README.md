@@ -21,4 +21,4 @@ Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles
 [![Reichsgesetzblatt 1918 Nr. 144 S. 1273](https://upload.wikimedia.org/wikipedia/commons/e/ec/Deutsches_Reichsgesetzblatt_1918_144_1273.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
 [![Reichsgesetzblatt 1918 Nr. 144 S. 1274](https://upload.wikimedia.org/wikipedia/commons/1/15/Deutsches_Reichsgesetzblatt_1918_144_1274.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
 [![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/d/db/Deutsches_Reichsgesetzblatt_1918_144_1275.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
-
+[![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/7/7e/Deutsches_Reichsgesetzblatt_1918_144_1276.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
