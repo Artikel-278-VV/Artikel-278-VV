@@ -13,6 +13,6 @@ Weblinks zu den **Dokumenten**:
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 * [Verfassungsurkunde Preußische StaatEN (Staatsgrundgesetz vom 31. Januar 1850)](https://hacker:matrix2021@matrixhacker.de/pdf/18500131_Gesetz-Sammlung_f_d_Koeniglichen_Preussischchen_Staaten-Stk3_Nr-3242s17_Verfassungs-Urkunde.pdf)
 
-[![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://youtu.be/RprgaSB08rc?si=d9wLSAM7N5EPdbRe)
+[![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
 
 Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles)
