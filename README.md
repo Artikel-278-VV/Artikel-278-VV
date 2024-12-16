@@ -21,7 +21,7 @@ Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles
 
 Source: [Wikipedia](https://de.wikipedia.org/wiki/Waffenstillstand_von_Compi%C3%A8gne_(1918))
 
-Doch waren die Vollmachten des Erzberges, durch den Putsch (Revolution, Staatsstreich) an 9/11 1918, Vollmachten der Kaiserlich Deutschen Regierung nämlich, nichts mehr von Wert und andere konnte es noch nicht geben, da noch nichts neues verfassungsgemäß zustande kam. Deshalb unterzeichneten quasi die sozialistische Revolutionsregerung (vgl. RGBl. 1918 S. 1303), ohne dabei aber im Vertrage die auch Kund zu tun, und gerade nicht die im Vertrage im Rubrum aufgeführte "Kaiserlich Deutsche Regierung"
+Doch waren die Vollmachten des Erzberges, durch den Putsch (Revolution, Staatsstreich) an 9/11 1918, Vollmachten der Kaiserlich Deutschen Regierung nämlich, nichts mehr von Wert und andere konnte es noch nicht geben, da noch nichts neues verfassungsgemäß zustande kam. Deshalb unterzeichnete quasi die sozialistische Revolutionsregerung (vgl. RGBl. 1918 S. 1303), ohne dabei aber im Vertrage die auch Kund zu tun, und gerade nicht die im Vertrage im Rubrum aufgeführte "Kaiserlich Deutsche Regierung"
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/0/03/Deutsches_Reichsgesetzblatt_1918_153_1303.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
