@@ -45,3 +45,6 @@ Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_
 
 # Verordnung über die deutsche Staatsangehörigkeit v. 05.03.1934
 [![Reichsgesetzblatt I 1934 Nr. 14 S. 85](https://upload.wikimedia.org/wikipedia/commons/2/2b/Deutsches_Reichsgesetzblatt_34T1_014_0085.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+# Reichsbürgergesetz v. 15.09.1935
+[![Reichsgesetzblatt I 1935 S. 1146](https://upload.wikimedia.org/wikipedia/commons/a/ab/Blutschutzgesetz_v.15.9.1935_-_RGBl_I_1146gesamt.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
