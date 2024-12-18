@@ -35,11 +35,11 @@ Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_
 
 
 # AktenStk.Nr. 144 mWv 28.10.1918
-[![Reichsgesetzblatt 1918 Nr. 144 S. 1273](https://upload.wikimedia.org/wikipedia/commons/e/ec/Deutsches_Reichsgesetzblatt_1918_144_1273.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
-[![Reichsgesetzblatt 1918 Nr. 144 S. 1274](https://upload.wikimedia.org/wikipedia/commons/1/15/Deutsches_Reichsgesetzblatt_1918_144_1274.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
-[![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/d/db/Deutsches_Reichsgesetzblatt_1918_144_1275.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
-[![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/7/7e/Deutsches_Reichsgesetzblatt_1918_144_1276.png)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
+[![Reichsgesetzblatt 1918 Nr. 144 S. 1273](https://upload.wikimedia.org/wikipedia/commons/e/ec/Deutsches_Reichsgesetzblatt_1918_144_1273.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![Reichsgesetzblatt 1918 Nr. 144 S. 1274](https://upload.wikimedia.org/wikipedia/commons/1/15/Deutsches_Reichsgesetzblatt_1918_144_1274.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/d/db/Deutsches_Reichsgesetzblatt_1918_144_1275.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/7/7e/Deutsches_Reichsgesetzblatt_1918_144_1276.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit v. 14.07.1933
-[![Reichsgesetzblatt 1918 Nr. 144 S. 1273](https://upload.wikimedia.org/wikipedia/commons/f/fc/Deutsches_Reichsgesetzblatt_33T1_081_0480.jpg)](https://drive.proton.me/urls/1NJE44GJDW#4d1txMpOjPRi)
+[![Reichsgesetzblatt 1918 Nr. 144 S. 1273](https://upload.wikimedia.org/wikipedia/commons/f/fc/Deutsches_Reichsgesetzblatt_33T1_081_0480.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
