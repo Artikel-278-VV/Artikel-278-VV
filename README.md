@@ -40,6 +40,8 @@ Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_
 [![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/d/db/Deutsches_Reichsgesetzblatt_1918_144_1275.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 [![Reichsgesetzblatt 1918 Nr. 144 S. 1275](https://upload.wikimedia.org/wikipedia/commons/7/7e/Deutsches_Reichsgesetzblatt_1918_144_1276.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-# Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit v. 14.07.1933
-[![Reichsgesetzblatt 1918 Nr. 144 S. 1273](https://upload.wikimedia.org/wikipedia/commons/f/fc/Deutsches_Reichsgesetzblatt_33T1_081_0480.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+# Verordnung über die deutsche Staatsangehörigkeit v. 05.03.1934
+[![Reichsgesetzblatt I 1934 Nr. 14 S. 85](https://upload.wikimedia.org/wikipedia/commons/2/2b/Deutsches_Reichsgesetzblatt_34T1_014_0085.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
+# Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit v. 14.07.1933
+[![Reichsgesetzblatt I 1933 Nr. 81 S. 480](https://upload.wikimedia.org/wikipedia/commons/f/fc/Deutsches_Reichsgesetzblatt_33T1_081_0480.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
