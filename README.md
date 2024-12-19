@@ -19,6 +19,33 @@ Weblinks zu den **Dokumenten**:
 
 Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles)
 
+Friedensvertrag von Versailles
+[(Versailler Vertrag)](http://www.documentarchiv.de/wr/vv.html)
+
+Vom 28. Juni 1919.
+
+Völkerbundssatzung (Artikel 1 bis 26)
+Deutschlands Grenzen (Artikel 27 bis 30)
+Politische Bestimmungen über Europa (Artikel 31 bis 117)
+Deutsche Rechte und Interessen außerhalb Deutschlands (Artikel 118 bis 158)
+Bestimmungen über Landheer, Seemacht und Luftfahrt (Artikel 159 bis 213)
+Kriegsgefangene und Grabstätten (Artikel 214 bis 226)
+Strafbestimmungen (Artikel 227 bis 230)
+Wiedergutmachungen (Artikel 231 bis 247)
+Finanzielle Bestimmungen (Artikel 248 bis 263)
+Wirtschaftliche Bestimmungen (Artikel 264 bis 312)
+Luftfahrt (Artikel 313 bis 320)
+Häfen, Wasserstraßen und Eisenbahnen (Artikel 321 bis 386)
+Arbeit (Artikel 387 bis 427)
+Bürgschaften für die Durchführung (Artikel 428 bis 433)
+Verschiedene Bestimmungen (Artikel 434 bis 440)
+ Vollständiges Inhaltsverzeichnis der Friedensvertrages
+
+Protokoll zum Versailler Vertrag (28.06.1919)
+Vereinbarung zum Versailler Vertrag (28.06.1919)
+
+
+
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/0/01/Armistice_18_novembre_1918.jpg/800px-Armistice_18_novembre_1918.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 Source: [Wikipedia](https://de.wikipedia.org/wiki/Waffenstillstand_von_Compi%C3%A8gne_(1918))
