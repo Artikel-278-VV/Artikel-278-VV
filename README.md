@@ -11,7 +11,6 @@ Weblinks zu den **Dokumenten**:
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 19.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
-* [Verfassungsurkunde Preußische StaatEN (Staatsgrundgesetz vom 31. Januar 1850)](https://hacker:matrix2021@matrixhacker.de/pdf/18500131_Gesetz-Sammlung_f_d_Koeniglichen_Preussischchen_Staaten-Stk3_Nr-3242s17_Verfassungs-Urkunde.pdf)
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
