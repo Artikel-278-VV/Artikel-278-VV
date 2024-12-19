@@ -45,6 +45,50 @@ Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_
 # Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit v. 14.07.1933
 [![Reichsgesetzblatt I 1933 Nr. 81 S. 480](https://upload.wikimedia.org/wikipedia/commons/f/fc/Deutsches_Reichsgesetzblatt_33T1_081_0480.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
+Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit.
+
+Vom 14. Juli 1933.
+
+
+  Die Reichsregierung hat das folgende Gesetz beschlossen, das hiermit verkündet wird:
+
+§ 1
+
+  [1] Einbürgerungen, die in der Zeit zwischen dem 9. November 1918 und dem 30. Januar 1933 vorgenommen worden sind, können widerrufen werden, falls die Einbürgerung nicht als erwünscht anzusehen ist.
+  [2] Durch den Widerruf verlieren außer dem Eingebürgerten selbst auch diejenigen Personen die deutsche Staatsangehörigkeit, die sie ohne die Einbürgerung nicht erworben hätten.
+  [3] Der Widerruf wird wirksam mit der Zustellung der Widerrufsverfügung oder mit dem Zeitpunkt seiner Veröffentlichung im Reichsanzeiger.
+  [4] Der Widerruf liegt den Landesbehörden, bei unmittelbaren Reichsangehörigen dem zuständigen Reichsminister ob.
+  [5] Diese Vorschrift tritt mit dem Ablauf von 2 Jahren nach ihrer Verkündung außer Kraft.
+
+§ 2
+
+  [1] Reichsangehörige, die sich im Ausland aufhalten, können der deutschen Staatsangehörigkeit für verlustig erklärt werden, sofern sie durch ein Verhalten, das gegen die Pflicht zur Treue gegen Reich und Volk verstößt, die deutschen Belange geschädigt haben. Das gleiche gilt für Reichsangehörige, die einer Rückkehraufforderung nicht Folge leisten, die der Reichsminister des Innern unter Hinweis auf diese Vorschrift an sie gerichtet hat. Bei der Einleitung des Aberkennungsverfahrens oder bei Erlaß der Rückkehraufforderung kann ihr Vermögen beschlagnahmt, nach Aberkennung der deutschen Staatsangehörigkeit als dem Reiche verfallen erklärt werden. Die Beschlagnahme des Vermögens endigt spätestens mit dem Ablauf von 2 Jahren, falls es nicht vorher als dem Reiche verfallen erklärt wird.
+  [2] Diese Maßnahmen können auch gegenüber Reichsangehörigen im Saargebiet getroffen werden, die in der Zeit nach dem 30. Januar 1933 ihren Aufenthalt dorthin verlegt haben.
+  [3] Die Entscheidung trifft der Reichsminister des Innern im Einvernehmen mit dem Reichsminister des Auswärtigen in der Regel nach Anhörung der Regierungen der beteiligten Länder; als beteiligt gelten das Land, dem der Reichsangehörige angehört, und diejenigen Länder, in denen er innerhalb der letzten Jahre seine dauernde Niederlassung gehabt hat.
+  [4] Der Reichsminister des Innern im Einvernehmen mit dem Reichsminister des Auswärtigen beschließt im einzelnen Falle, inwieweit sich der Verlust der deutschen Staatsangehörigkeit auf den Ehegatten, auf die ehelichen oder an Kinderstatt angenommenen Kinder, bei Frauen auf die unehelichen Kinder erstreckt.
+  [5] Die Aberkennung der Staatsangehörigkeit wird mit der Verkündung der Entscheidung im Reichsanzeiger wirksam.
+
+§ 3
+
+  Der Reichsminister des Innern kann im Einvernehmen mit den Reichsministern des Auswärtigen und der Finanzen Rechts- und Verwaltungsvorschriften zur Ausführung dieses Gesetzes erlassen.
+
+
+  Berlin, den 14. Juli 1933.
+
+Der Reichskanzler
+Adolf Hitler
+
+Der Reichsminister des Innern
+Frick
+
+Der Reichsminister des Auswärtigen
+Freiherr von Neurath
+
+Der Reichsminister der Finanzen
+Graf Schwerin von Krosigk
+
+Source: [www.documentarchiv.de](http://www.documentarchiv.de/ns/1933/deutsche-staatsangehoerigkeit_ges.html)
+
 # Verordnung über die deutsche Staatsangehörigkeit v. 05.03.1934
 [![Reichsgesetzblatt I 1934 Nr. 14 S. 85](https://upload.wikimedia.org/wikipedia/commons/2/2b/Deutsches_Reichsgesetzblatt_34T1_014_0085.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
