@@ -20,7 +20,7 @@ Weblinks zu den **Dokumenten**:
 Source: [Wikipedia](https://de.wikipedia.org/wiki/Friedensvertrag_von_Versailles)
 
 Friedensvertrag von Versailles
-[(Versailler Vertrag)](http://www.documentarchiv.de/wr/vv.html)
+([Versailler Vertrag](http://www.documentarchiv.de/wr/vv.html))
 
 Vom 28. Juni 1919.
 
