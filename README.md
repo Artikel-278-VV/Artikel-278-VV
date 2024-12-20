@@ -9,7 +9,7 @@ Weblinks zu den **Dokumenten**:
 * [Aufsatz nebst Anlagen, Beilagen und eine OVG Beschwerde](https://drive.proton.me/urls/CVVMDDE9YW#ZE7PDaXtEnlZ)
 * [Waffe-StAG-Video](https://drive.proton.me/urls/S0H5J89YNM#k0MFtlrKjQQC)
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
-* [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 19.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+* [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
