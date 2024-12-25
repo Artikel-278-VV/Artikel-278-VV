@@ -1,6 +1,6 @@
 # Inhaltsverzeichnis (lang)
 
-#Haben oder Sein?
+# Haben oder Sein?
 
 S. 1. Inhaltsverzeichnis (kurz)
 
