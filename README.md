@@ -12,7 +12,8 @@ Weblinks zu den **Dokumenten**:
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 
-Inhaltsverzeichnis (kurz S. 1)
+# Inhaltsverzeichnis (kurz S. 1)
+
 S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
 S. 4   Artikel 9
 S. 4   Erklärung zur Aussetzung d. Wirksamkeit d. Vier-Mächte-Rechte u. -Verantwortlichkeiten
