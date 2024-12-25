@@ -15,20 +15,35 @@ Weblinks zu den **Dokumenten**:
 # Inhaltsverzeichnis (kurz S. 1)
 
 S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
+
 S. 4   Artikel 9
+
 S. 4   Erklärung zur Aussetzung d. Wirksamkeit d. Vier-Mächte-Rechte u. -Verantwortlichkeiten
+
 S. 5   Vertrag v. 12.09.1990 über die „abschließende“ „Regelung“ in bezug auf Deutschland
+
 S. 21  Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
+
 S. 42  VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
+
 S. 58  Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben.
+
 S. 152 AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
+
 S. 172 Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG)
+
 S. 185 Der völkerrechtswidrige Artikel 278 Versailler Vertrag!
+
 S. 187 Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913
+
 S. 190 „Die Verfassung des Deutschen Reichs“. Vom 11.08.1919
+
 S. 192 Gesetz über den Friedensschluß
+
 S. 200 Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
+
 S. 258 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
+
 S. 260 [257]           Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.             537
 S. 261 538                 Nr. 217. Erklärung des Kaisers Franz II. 1806.                [258]
 S. 263 540                                          Anhang.                                     [260]
