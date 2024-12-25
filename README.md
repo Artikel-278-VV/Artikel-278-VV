@@ -92,6 +92,7 @@ S. 470 Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820
 
 S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
 
+# Unterzeichnung ohne rechtsgültige Vollmachten der deutschen Delegation
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/f/f9/Treaty_of_Versailles_in_the_Hall_of_Mirrors.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
