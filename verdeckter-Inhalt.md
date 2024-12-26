@@ -219,8 +219,15 @@ S. 166 ... Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.0
 
 S. 167 ... Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935 (transk.)
 
+# Reichsbürgergesetz v. 15.09.1935
+[![Reichsgesetzblatt I 1935 S. 1146](https://upload.wikimedia.org/wikipedia/commons/a/ab/Blutschutzgesetz_v.15.9.1935_-_RGBl_I_1146gesamt.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
 S. 168 ... 1. Verordnung zum Reichsbürgergesetz (Beamte, Richter, Staatsanwälte, Anwälte, Abgeordnete, Kanzler, Parteigründer,
 Vereinsgründer, Lehrer, etc. pp., das „Wir“ und „Uns“) RGBl. I 1935 Nr. 125 S. 1333 v. 14.11.1935
+
+# 1. Verordnung zum Reichsbürgergesetz v. 15.09.1935
+[![Reichsgesetzblatt I 1935 S. 1333 (commons/f/f5/RGBL_I_1935_S_1333.png)](https://upload.wikimedia.org/wikipedia/commons/f/f5/RGBL_I_1935_S_1333.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![Reichsgesetzblatt I 1935 S. 1334 (commons/0/04/RGBL_I_1935_S_1334.png)](https://upload.wikimedia.org/wikipedia/commons/0/04/RGBL_I_1935_S_1334.png)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 S. 169 ... 1. Verordnung zum Reichsbürgergesetz (Beamte, Richter, Staatsanwälte, Anwälte, Abgeordnete, Kanzler, Parteigründer,
 Vereinsgründer, Lehrer, etc. pp., das „Wir“ und „Uns“) RGBl. I 1935 Nr. 125 S. 1334 v. 14.11.1935
