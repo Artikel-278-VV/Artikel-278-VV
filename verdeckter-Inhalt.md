@@ -183,13 +183,29 @@ S. 151 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946 
 
 S. 152 ... AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949 Zeitliches Register
 
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
+S. 153 ... AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949 - Gesetze: Inhalt
 
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3) Gesetz Nr. 4
+S. 153 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Deckblatt zu Nr. 1
 
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 27 (S. 4) Gesetz Nr. 4 und Gesetz Nr. 5
+S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Inhalt der Seiten 3 bis 23 (S. 1)
 
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 28 (S. 5) Gesetz Nr. 5
+S. 156 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 3 (S. 2) Vorwort
+
+S. 156 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 4 (S. 3) Proklamation Nr. 1 – „Aufstellung des Kontrollrates“ I bis III
+
+S. 158 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 5 (S. 4) Proklamation Nr. 1 – „Aufstellung des Kontrollrates“ und Befehl Nr. 1
+
+S. 159 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 6 (S. 5) Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
+„deutsche Staatsangehörigkeit“ n. RGBl. I 1934 S. 85 (vgl. RGBl. I 1933 S. 480, heute Art. 16 I GG) und
+nazistischer Reichsbürger, dem „Deutschen“ Staatsbürger n. RGBl. I 1935 S. 1146 (heute Art. 116 I GG)
+
+S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
+
+S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3) Gesetz Nr. 4
+
+S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 27 (S. 4) Gesetz Nr. 4 und Gesetz Nr. 5
+
+S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 28 (S. 5) Gesetz Nr. 5
 
 Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935
 
