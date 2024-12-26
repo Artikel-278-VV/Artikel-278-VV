@@ -394,28 +394,48 @@ S. 371 ... Schutze des Deutschen Reiches und Bundesverfassung von v. Rönne XI. 
 
 S. 380 ... Das Reichspräsidium. Organe der Reichsgewalt des Deutschen Reich von v. Rönne S. 156
 
-S. 386 ... Das Reichspräsidium. Organe der Reichsgewalt des Deutschen Reich von v. Rönne S. 162
+S. 386 ... Das Reichspräsidium. Organe der Reichsgewalt des Deutschen Reich von v. Rönne S. 162 - Der Reichstag
 
-S. 299 ... Verfassungsmäßige Rechte der Reichsangehörigen von v. Rönne S. 171
+S. 390 ... Geschäftsordnung des Reichstages. von v. Rönne S. 177
 
-S. 299 ... Geschäftsordnung des Reichstages. von v. Rönne S. 177
+S. 394 ... Das Rätsel der Geschäftsordnung des Reichstags ab der jur. F. Art. 33 „Weimarer Drittes Reich“ - Geschäftsordnung. — Vgl. auch »Reichsrat« unter V
 
-S. 299 ... Reichsämter und Reichsbeamte des Deutschen Reiches von v. Rönne S. 200
+S. 397 ... Freundschaft zu US-Haiti im RGBl. II 1930 Nr. 1 S. 1 v. 22.12.1930
 
-S. 299 ... Preuß. Gesetzbl. S. 143 – Im Namen der allerheiligsten und untheilbaren Dreieinigkeit.
+S. 398 ... Geschäftsordnung des (römischen) Reichstages im RGBl. II 1923 Nr. 9 S. 101 v. 17.02.1923
 
-S. 299 ... Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820.
+S. 414 ... Geschäftsordnung des (römischen) Reichstages im RGBl. II 1931 Nr. 9 S. 221 v. 15.04.1931
 
-S. 299 ... Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
+S. 427 ... Geschäftsordnung des (römischen) Bundestages im BGBl. II 1951 Nr. 8 S. 103 v. 30.05.1951
 
-S. 299 ... Beilagen - Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
+S. 429 ... Gemeinsame Geschäftsordnung des Bundestags im Reichstag ab 2003 in Teil I
 
-S. 299 ... Beilagen - Recht-Staat-Zweifel bzgl. Drittem Reich und dessen Rechtsfolger BRD
+S. 431 ... Bannmeilengesetz über Befriedung der Gebäude des Reichstags im RGBl. Nr. 104 S. 909 v. 08.05.1920
 
-S. 299 ... Es folgt ein einfacher Aktenvergleich zwischen Enkel und Großvater (beide Anti-NAZI).
+S. 387 ... Verfassungsmäßige Rechte der Reichsangehörigen von v. Rönne S. 171
 
-S. 299 ... Beilagen OFW Alexander Bittner a.D. über Folter in den JVAs 2024640
+S. 390 ... Geschäftsordnung des Reichstages. von v. Rönne S. 177
 
-S. 299 ... Beilagen Strafbefehl durch erwiesen korrupte Kathleen Rau, Richterin am Amtsgerichts Rendsburg643
+S. 433 ... Reichsämter und Reichsbeamte des Deutschen Reiches von v. Rönne S. 200
 
-S. 299 ... Beilagen Vergleich ähnlicher Fall des Großvaters im Dritten Reich 1935 und 1944
+S. 438 ... Verfassungs-Urkunde für den Preußischen Staat. Vom 31. Januar 1850. GSl. für die Königl. Preußischen Staaten Nr. 3 (Nr. 3212) S. 17 (S. 1)
+
+S. 457 ... Preuß. Gesetzbl. 1819 S. 143 – Im Namen der allerheiligsten und untheilbaren Dreieinigkeit. Gesetz Nr. 23 v. 8. Juni 1815 (Deutsche Bundes-Akte, Deutsches Grundgesetz No. 1)
+
+S. 470 ... Preußisches Gesetzblatt 1820 Nr. 12 (Gesetz No. 612) S. 113 v. 24.06.1820 (Schlußakte, Deutsches Grundgesetz No. 2)
+
+S. 486 ... Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a. Über das, was zu tun sein wird.
+
+S. 591 ... Beilagen - Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
+
+S. 592 ... Beilagen - Recht-Staat-Zweifel bzgl. Drittem Reich und dessen Rechtsfolger BRD
+
+S. 592 ... Es folgt ein einfacher Aktenvergleich zwischen Enkel und Großvater (beide Anti-NAZI).
+
+S. 593 ... Beilagen OFW Alexander Bittner a.D. über Folter in den JVAs 2024640
+
+S. 596 ... Strafbefehl durch erwiesen korrupte Kathleen Rau, Richterin am Amtsgerichts Rendsburg
+570 Js 22199/20 StA Kiel
+
+S. 646 ... Vergleich ähnlicher Fall des Großvaters im Dritten Reich 1935 und 1944 - Sitzung vor dem Volksgerichtshof mit dem Vorsitz des Präsidenten Dr. Freisler v. 17.07.1944
+BArch.: R3018-1063 ff. - teilweise bislang unveröffentlichtes Material zur "Europäischen Union" 1935 bis 1950 aus Prozessakten
