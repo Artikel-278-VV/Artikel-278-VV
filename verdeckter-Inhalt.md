@@ -227,6 +227,9 @@ Vereinsgründer, Lehrer, etc. pp., das „Wir“ und „Uns“) RGBl. I 1935 Nr.
 
 S. 170 ... 2. Verordnung über die deutsche Staatsangehörigkeit vom 05.02.1934 (vgl. StAG-RG v. 15.07.1999) RGBl. I 1934 Nr. 14 S. 85 – Auslöschung Länderangehörigkeiten und deutsche Reichsangehörigkeit (WRV)
 
+# Verordnung über die deutsche Staatsangehörigkeit v. 05.03.1934
+[![Reichsgesetzblatt I 1934 Nr. 14 S. 85](https://upload.wikimedia.org/wikipedia/commons/2/2b/Deutsches_Reichsgesetzblatt_34T1_014_0085.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
 S. 000 ... Gesetz über den "Neuaufbau des [Dritten-]Reichs" mit abnehmendem Weimar. RGBl. I 1933 Nr. 11 S. 75 (Staatsgrundgesetze, vgl. RGBl. I 1934 Nr. 14 S. 85) - NICHT ENTHALTEN
 
 # RGBl. I 1933 Nr. 11 S. 75
