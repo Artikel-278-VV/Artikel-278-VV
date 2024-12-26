@@ -44,11 +44,21 @@ S. 17 ... Zusammentreffen der Außenminister am 01.10.1990 in NY
 
 S. 18 ... Unterzeichner für Frankreich, UdSSR (RF), UK und Nordirland (fehlt)
 
-Unterzeichner James Baker III, für BRD Genscher und für DDR Hans Joachim Meyer
+S. 19 ... Unterzeichner James Baker III, für BRD Genscher und für DDR Hans Joachim Meyer
 
-Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
+S. 20 ... Inkrafttreten 2+4 Vertrag: 15. März 1919 (15.03.1991 wie 1919)
 
-Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut
+S. 21 ... Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
+
+S. 21 ... Das „Potsdamer Abkommen und andere Dokumente“ II. Errichtung eines Rates der Außenminister S. 13
+
+S. 23 ... Das „Potsdamer Abkommen und andere Dokumente“ III. Deutschland S. 15
+
+S. 27 ... Das „Potsdamer Abkommen und andere Dokumente“ IV. Reparationen aus Deutschland S. 19
+
+S. 29 ... Das „Potsdamer Abkommen und andere Dokumente“ Friedensvertrag wird hintertrieben S. 28
+
+S. 31 ... Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut
 
 - 2
 
