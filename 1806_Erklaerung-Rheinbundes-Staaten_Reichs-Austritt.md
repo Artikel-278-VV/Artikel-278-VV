@@ -51,19 +51,33 @@ Hochwohl- und Wohlgebornen nachstehende Erklärung mitzutheilen:
        zugleich die Ehre, die Versicherung der hochachtungsvollsten Ergebenheit hinzuzufügen,
        womit wir sind
 Eurer Excellenzien, Hochwürden, Hoch-, Hochwohl- und Wohlgebornen
+
        Regensburg, den 1. August 1806.                             gehorsamst-ergebenste
+       
 Freiherr von Rechberg, Ihrer königlichen Majestät von Baiern geheimer Rath
+
        und bisheriger Comitial-Gesandter.
+       
 Freiherr von Seckendorf, Ihrer königlichen Majestät von Würtemberg Staatsminister
+
        und bisheriger Comitial-Gesandter.
+       
 Churfürstlich-Reichs-Erzkanzlerischer Staatsminister und Directorial-Gesandter,
+
        Freiherr von Albini. 
+       
 Der churfürstlich Badensche Gesandte, Albrecht Freiherr von Seckendorf.
+
 Landgräflich Hessischer Gesandter, Freiherr von Türkheim.
+
 Edmund Freiherr von Schmiz-Grollenburg, Seiner hochfürstlichen Durchlaucht
+
        zu Hohenzollern-Hechingen und des hochfürstlichen Gesammthauses
+       
        Hohenzollern Gesandter.
+       
 Weihbischof und Domdechant von Wolf, als Salm-Kyrburgischer-Comitial-Gesandter.
+
 Von Mollenbec, von wegen Seiner hochfürstlichen Durchlaucht zu Isenburg.
 
 -----------------------
