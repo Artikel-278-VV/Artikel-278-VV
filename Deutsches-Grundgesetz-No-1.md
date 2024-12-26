@@ -1,11 +1,12 @@
 Die Grundgesetze des deutschen Bundes.
-(transk. vom Original Faksimile aus der Sammlung d. DBR S. 289-304)
-[Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+(transk. vom Original Faksimile aus der [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 289-304)
 
 Die Grundgesetze des deutschen Bundes.
 -------------------
 Nr. 218.            (189). Die deutsche Bundes-Akte. — 1815, Juni 8.
+
 K. Binding, Deutsche Staatsgrundgesetze III S. 19—34.
+
 Im Nahmen der allerheiligsten und untheilbaren Dreyeinigkeit.
 
        Die1 souverainen Fürsten und freien Städte Deutschlands den gemeinsamen Wunsch hegend den 6ten Artikel des Pariser Friedens vom 30. May 1814 in Erfüllung zu setzen2, und von den Vortheilen überzeugt, welche aus ihrer festen und dauerhaften Verbindung für die Sicherheit und Unabhängigkeit Deutschlands, und die Ruhe und das Gleichgewicht Europas hervorgehen würde, sind übereingekommen, sich zu einem beständigen Bunde zu vereinigen, und haben zu diesem Behuf ihre Gesandten und Abgeordneten am Congresse in Wien mit Vollmachten versehen, nämlich: (Es folgen die Namen und Titel der Bevollmächtigten.)
