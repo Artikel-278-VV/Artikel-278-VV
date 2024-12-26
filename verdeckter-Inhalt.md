@@ -299,16 +299,37 @@ S. 198 ... Waffenstillstandsabkommen vom 11.11.1918 mWv 11.00 Uhr (Karneval) Waf
 
 # Bundesrecht gemäß Art. 1 bis 3 I bis III BVerf. v. 1867/71/18
 
-S. 200 ... Auszug aus „Wilhelm II. Ereignisse und Gestalten 1878-1919“ v. 1922 S. 244
+S. 199 ... Auszug aus „Wilhelm II. Ereignisse und Gestalten 1878-1919“ v. 1922 S. 244
 
-Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
-Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am Mo., den 28.10.1918
+S. 200 ... Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht) Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am Mo., den 28.10.1918
 
-Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus?
+S. 202 ... Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am Mo., den 28.10.1918 RGBl. 1918 Aktenstück Nr. 144 mit den Gesetzes Nr. 6503 bis 6505 auf den S. 1273 bis S. 1276 (S. 1)
+Nr. 144 insgesamt am 28.10.1918 in Kraft getreten, aber der Fristablauf am 11.11.1918 lässt spekulieren
 
-Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus? Der Erlaß d.s.Ts..
+S. 203 ... Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am 28.10.1918 RGBl. 1918 Aktenstück Nr. 144 (GesetzNr. 6503 mit Inkraftsetzungsvermerk gem. Art. 2 BVerf.) S. 1274 (S. 2)
 
-Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
+S. 204 ... Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am 28.10.1918 RGBl. 1918 Aktenstück Nr. 144 (GesetzNr. 6504 ohne Inkraftsetzungsvermerk, mWv 11.11.18) S. 1275 (S. 3)
+
+S. 205 ... Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am 28.10.1918 RGBl. 1918 Aktenstück Nr. 144 (GesetzNr. 6505 mit Inkraftsetzungsvermerk gem. Art. 2 BVerf.) S. 1276 (S. 4)
+
+S. 206 ... Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus?
+Betreffend der beiden Gesetze Nr. 6503 und Nr. 6504 als Teil des Aktenstücks Nr. 144 v. 1918
+Auszüge aus dem Rechenschaftsbericht des Alt-Kanzlers Prinz Max von Baden v. 1927, Kap. 7, S. 473 (S. 1)
+
+S. 225 ... Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus?
+Betreffend der beiden Gesetze Nr. 6503 und Nr. 6504 als Teil des Aktenstücks Nr. 144 v. 1918
+Auszüge aus dem Rechenschaftsbericht des Alt-Kanzlers Prinz Max von Baden v. 1927, Kap. 9, S. 525 II (S. 1)
+„Erlaß Seiner Majestät“ vom 28.10.1918, „mit dem er die Bekanntmachung der neuen
+verfassungsändernden Gesetzen zu begleiten wünschte:“
+
+S. 228 ... Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus?
+Betreffend der beiden Gesetze Nr. 6503 und Nr. 6504 als Teil des Aktenstücks Nr. 144 v. 1918
+Auszüge aus dem Rechenschaftsbericht des Alt-Kanzlers Prinz Max von Baden v. 1927, Kap. 10, S. 531 (S. 1)
+Die Alternative - Abdankung des Kaisers (Kaiseramtes)
+
+S. 258 ... Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
+Corpus Iuris Confoederationis Germanicae I, S. 70f.
+Dietatum Ratisbonae die 1. Augusti 1806 per Archicancellariengem.
 
 [257]Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.537
 
