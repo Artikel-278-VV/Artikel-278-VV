@@ -341,6 +341,7 @@ S. 268 ... 544 Nr. 218. Deutsche Bundes-Akte. 1815. Art. XV—XVIII. [264]
 S. 272 ... [265] Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.545
 
 S. 284 ... 552 Beilage. [272]
+
 S. 285 ... [273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
 
 S. 287 ... 554 Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. [274]
@@ -349,9 +350,23 @@ S. 289 ... 540 Anhang Die Grundgesetze des deutschen Bundes. [260]
 
 S. 290 ... [261] Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. V. VI. 541
 
-- 6
+S. 291 ... 542 Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. VII–XI. [262]
 
-[265] Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV. 545
+S. 292 ... [263] Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. XII–XIV. 543
+
+S. 293 ... 544 Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. XV–XVIII. [264]
+
+S. 294 ... [265] Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV. 545
+
+S. 295 ... 546 Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. V–XV. [266]
+
+S. 296 ... [267] Nr. 219. Wiener Schluß-Akte. 1820. Art. XVI–XXVI. 547
+
+S. 297 ... 548 Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. XXVII–XXXV. [268]
+
+S. 298 ... [269] Nr. 219. Wiener Schluß-Akte. 1820. Art. XXXVI–XLVI. 549
+
+S. 299 ... 550 Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. XLVII–LVIL. [270]
 
 552 Beilage.[272]
 
