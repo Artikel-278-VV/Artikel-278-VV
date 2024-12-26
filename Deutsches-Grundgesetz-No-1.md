@@ -1,5 +1,9 @@
-Die Grundgesetze des deutschen Bundes.
+# Die Grundgesetze des deutschen Bundes.
 (transk. vom Original Faksimile aus der [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 289-304)
+
+[![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/De_Zeumer_V2_540.jpg/800px-De_Zeumer_V2_540.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://commons.wikimedia.org/w/index.php?title=Category:Quellensammlung_zur_Geschichte_der_deutschen_Reichsverfassung&filefrom=De+Zeumer+V2+401.jpg#mw-category-media)
 
 Die Grundgesetze des deutschen Bundes.
 -------------------
