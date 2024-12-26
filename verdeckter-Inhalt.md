@@ -169,6 +169,7 @@ Die tatsächlichen Unterzeichner einen Tag zuvor am 11.11.1918.
 
 Waffenstillstandsabkommen vom 11.11.1918 mWv 11.00 Uhr (Karneval).
 
+
 - Bundesrecht gemäß Art. 1 bis 3 I bis III BVerf. v. 1867/71/18
 
 S. 200 ... Auszug aus „Wilhelm II. Ereignisse und Gestalten 1878-1919“ v. 1922 S. 244
@@ -202,4 +203,44 @@ Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. 
 
 - 6
 
-  
+[265] Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV. 545
+
+552 Beilage.[272]
+
+[273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
+
+Vorwort zum Verfassungsrecht des Deutschen Reiches von v. Rönne V
+
+Einleitung zum Verfassungsrecht des Deutschen Reiches von v. Rönne I. S. 1
+
+2. Abschnitt. Kompetenz der Reichsgewalt im Deutschen Reich von v. Rönne I. S. 40
+ 
+Reichs- und Staatsangehörigkeit im Deutschen Reich von v. Rönne IV. S. 102
+
+Schutze des Deutschen Reiches und Bundesverfassung von v. Rönne XI. S. 147
+
+Das Reichspräsidium. Organe d. Reichsgewalt d. Deutschen Reich von v. Rönne S. 156
+
+Verfassungsmäßige Rechte der Reichsangehörigen von v. Rönne S. 171
+
+Geschäftsordnung des Reichstages. von v. Rönne S. 177
+
+Reichsämter und Reichsbeamte des Deutschen Reiches von v. Rönne S. 200
+
+Preuß. Gesetzbl. S. 143 – Im Namen der allerheiligsten und untheilbaren Dreieinigkeit.
+
+Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820.
+
+Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
+
+Beilagen - Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
+
+Beilagen - Recht-Staat-Zweifel bzgl. Drittem Reich und dessen Rechtsfolger BRD
+
+Es folgt ein einfacher Aktenvergleich zwischen Enkel und Großvater (beide Anti-NAZI).
+
+Beilagen OFW Alexander Bittner a.D. über Folter in den JVAs 2024640
+
+Beilagen Strafbefehl durch erwiesen korrupte Kathleen Rau, Richterin am Amtsgerichts Rendsburg643
+
+Beilagen Vergleich ähnlicher Fall des Großvaters im Dritten Reich 1935 und 1944
