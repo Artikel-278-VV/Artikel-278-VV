@@ -60,9 +60,6 @@ S. 29 ... Das „Potsdamer Abkommen und andere Dokumente“ Friedensvertrag wird
 
 S. 31 ... Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut S. 41
 
-
-- 2
-
 S. 39 ... Das „Potsdamer Abkommen und andere Dokumente“ Schlußkommuniqué S. 49
 
 S. 42 ... VERZEICHNIS ZUM AMTSBLATT (VzA) DER HOHEN KOMMISSION (AHK) IN DEUTSCHLAND vom 21. September 1949 zum 30. Juni 1951 – Nr. 1 - 58
@@ -127,9 +124,6 @@ S. 105 ... VzA DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzung
 S. 106 ... VzA DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut Gesetz Nr. 22 S. 122 (S. 33) Besatzungsstatut.
 
 S. 117 ... VzA DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 133 (S. 44) „Verbotene Rechtsgeschäfte“
-
-- 3
-
 
 S. 118 ... VzA DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 134 (S. 45) „Verbotene Rechtsgeschäfte“
 
@@ -252,9 +246,6 @@ S. 171 ... Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der
 
 S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den Staatsangehörigkeitsverträgen von OVG Rat Dr. Ernst Isay, Berlin 1929 (S. 1)
 
-
-- 4
-
 S. 173 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 2) Vorwort
 
 S. 175 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 4) Inhaltsverzeichnis
@@ -331,23 +322,32 @@ S. 258 ... Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. 
 Corpus Iuris Confoederationis Germanicae I, S. 70f.
 Dietatum Ratisbonae die 1. Augusti 1806 per Archicancellariengem.
 
-[257]Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.537
+S. 260 ... [257] Nr. 216. Erklärung der Rheinbundes-Staaten. 1806. 537
 
-538Nr. 217. Erklärung des Kaisers Franz II. 1806.[258]
+S. 261 ... 538 Nr. 217. Erklärung des Kaisers Franz II. 1806. [258]
 
-540 Anhang.[260]
+S. 262 ... [259] Nr. 217. Erklärung des Kaisers Franz II. 1806. 539
 
-[261]Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.541
+S. 263 ... 540 Anhang. [260]
 
-[265]Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.545
+S. 264 ... [261]Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.541
 
-552 Beilage. [272]
+S. 266 ... 542 Nr. 218. Deutsche Bundes-Akte. 1815. Art. VII–XI. 262
 
-[273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
+S. 268 ... [263] Nr. 218. Deutsche Bundes-Akte. 1815, Art.XII—XIV. 543
 
-540 Anhang Die Grundgesetze des deutschen Bundes. [260]
+S. 268 ... 544 Nr. 218. Deutsche Bundes-Akte. 1815. Art. XV—XVIII. [264]
 
-[261] Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. V. VI. 541
+S. 272 ... [265] Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.545
+
+S. 284 ... 552 Beilage. [272]
+S. 285 ... [273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
+
+S. 287 ... 554 Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. [274]
+
+S. 289 ... 540 Anhang Die Grundgesetze des deutschen Bundes. [260]
+
+S. 290 ... [261] Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. V. VI. 541
 
 - 6
 
