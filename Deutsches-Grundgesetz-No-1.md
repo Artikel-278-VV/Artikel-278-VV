@@ -335,7 +335,7 @@ Wenn der Auftrag an mehrere Regierungen ergangen ist, so bestimmt die Bundes-Ver
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/b/b2/De_Zeumer_V2_552.jpg/800px-De_Zeumer_V2_552.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://commons.wikimedia.org/w/index.php?title=Category:Quellensammlung_zur_Geschichte_der_deutschen_Reichsverfassung&filefrom=De+Zeumer+V2+401.jpg#mw-category-media)
+Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://de.wikisource.org/wiki/Der_deutsche_Reichstag_in_seiner_Zusammensetzung_im_Jahre_1792)
 
 552                                        Beilage.                                         [272]
 
