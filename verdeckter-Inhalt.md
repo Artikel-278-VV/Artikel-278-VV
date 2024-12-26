@@ -2,19 +2,19 @@
 
 # Haben oder Sein?
 
-S. 1. Inhaltsverzeichnis (kurz)
+S. 1 ... Inhaltsverzeichnis (kurz)
 
-S. 2 Vertrag über die abschließende Regelung in bezug auf Deutschland
+S. 2 ... Vertrag über die abschließende Regelung in bezug auf Deutschland
 
-Artikel 1
+S. 3 ... Artikel 1
 
-Artikel 2
+S. 3 ... Artikel 2
 
-Artikel 3
+S. 3 ... Artikel 3
 
-S. 4 Artikel 9
+S. 4 ... Artikel 9
 
-S. 4 Erklärung zur Aussetzung d. Wirksamkeit d. Vier-Mächte-Rechte u. -Verantwortlichkeiten
+S. 4 ... Erklärung zur Aussetzung d. Wirksamkeit d. Vier-Mächte-Rechte u. -Verantwortlichkeiten
 
 Vertrag v. 12.09.1990 über die „abschließende“ „Regelung“ in bezug auf Deutschland5
 
@@ -48,7 +48,7 @@ Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
 
 Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut
 
-- 2 -
+- 2
 
 Das „Potsdamer Abkommen und andere Dokumente“ Schlußkommuniqué
 
@@ -97,3 +97,6 @@ VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 
 VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 22 Besatzungsstatut.
 
 VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
+
+- 3
+
