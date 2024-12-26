@@ -65,25 +65,25 @@ S. 31 ... Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut S. 
 
 S. 39 ... Das „Potsdamer Abkommen und andere Dokumente“ Schlußkommuniqué S. 49
 
-S. 42 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 21. September 1949 zum 30. Juni 1951 – Nr. 1 - 58
+S. 42 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION (AHK) IN DEUTSCHLAND vom 21. September 1949 zum 30. Juni 1951 – Nr. 1 - 58
 
-S. 43 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 Besatzungsstatut (S. 1)
+S. 43 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 Besatzungsstatut (S. 1)
 
-S. 44 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 1 S. 2 (S. 2)
+S. 44 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 1 S. 2 (S. 2)
 
-S. 46 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 2 S. 4 (S. 4) bzgl. Begriffe z.B. „das Bundesgebiet“
+S. 46 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 2 S. 4 (S. 4) bzgl. Begriffe z.B. „das Bundesgebiet“
 
-S. 47 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 3 S. 5 (S. 5)
+S. 47 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 3 S. 5 (S. 5)
 
-S. 48 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 4 S. 6 (S. 6)
+S. 48 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 4 S. 6 (S. 6)
 
-S. 49 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 5 S. 7 (S. 7) „Freiheit der Presse“
+S. 49 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 5 S. 7 (S. 7) „Freiheit der Presse“
 
-S. 52 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 5 und Gesetz Nr. 6 S. 10 (S. 10)
+S. 52 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 5 und Gesetz Nr. 6 S. 10 (S. 10)
 
-S. 53 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 6 und Gesetz Nr. 7 S. 11 (S. 11)
+S. 53 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 6 und Gesetz Nr. 7 S. 11 (S. 11)
 
-S. 55 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 7 Anlage S. 13 oberhalb des BGBl. III (S. 1, vgl. Art. 139 GG) für die BrD
+S. 55 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 7 Anlage S. 13 oberhalb des BGBl. III (S. 1, vgl. Art. 139 GG) für die BrD
 
 S. 58 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Als Anlage zum Gesetz Nr. 7 S. 13, namentlich der Kern des Besatzungsstatuts. S. 2 (S. 1)
 
@@ -104,29 +104,29 @@ S. 71 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Ge
 
 S. 72 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Besatzungsstatut.
 
-S. 77 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut Gesetz Nr. 8 S. 18 (S. 5, vgl. Art. 139 GG)
+S. 77 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut Gesetz Nr. 8 S. 18 (S. 5, vgl. Art. 139 GG)
 
-S. 82 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut Gesetz Nr. 8 und Gesetz Nr. 9 S. 23 (S. 10)
+S. 82 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut Gesetz Nr. 8 und Gesetz Nr. 9 S. 23 (S. 10)
 
-S. 86 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vvom 09. Dezember 1949 – No. 6 – Besatzungsstatut S. 53 (S. 14)
+S. 86 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vvom 09. Dezember 1949 – No. 6 – Besatzungsstatut S. 53 (S. 14)
 
-S. 87 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut Gesetz Nr. 13 S. 54 (S. 15) Besatzungsstatut
+S. 87 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut Gesetz Nr. 13 S. 54 (S. 15) Besatzungsstatut
 
-S. 92 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut Gesetz Nr. 14 S. 59 (S. 20)
+S. 92 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut Gesetz Nr. 14 S. 59 (S. 20)
 
-S. 97 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut S. 69 (S. 25)
+S. 97 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut S. 69 (S. 25)
 
-S. 98 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 15 S. 70 (S. 25)
+S. 98 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 15 S. 70 (S. 25)
 
-S. 100 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 15 und Gesetz Nr. 16 S. 72 (S. 27)
+S. 100 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 15 und Gesetz Nr. 16 S. 72 (S. 27)
 
-S. 102 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 16 und Gesetz Nr. 17 S. 74 (S. 29)
+S. 102 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 16 und Gesetz Nr. 17 S. 74 (S. 29)
 
-S. 105 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut S. 121 (S. 32)
+S. 105 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut S. 121 (S. 32)
 
-S. 106 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut Gesetz Nr. 22 S. 122 (S. 33) Besatzungsstatut.
+S. 106 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut Gesetz Nr. 22 S. 122 (S. 33) Besatzungsstatut.
 
-S. 117 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 133 (S. 44) „Verbotene Rechtsgeschäfte“
+S. 117 ... VERZEICHNIS ZUM AMTSBLATT DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 133 (S. 44) „Verbotene Rechtsgeschäfte“
 
 - 3
 
