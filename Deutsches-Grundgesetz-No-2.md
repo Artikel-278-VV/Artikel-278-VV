@@ -1,5 +1,5 @@
 # Wiener Schluß-Akte v. 1820
-(transk. aus [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. xxx-xxx o. [Quellensammlung zur Geschichte der Deutschen Reichsverfassung in Mittelalter und Neuzeit](https://de.wikisource.org/wiki/Quellensammlung_zur_Geschichte_der_Deutschen_Reichsverfassung_in_Mittelalter_und_Neuzeit))
+(transk. aus [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 294-304 o. [Quellensammlung zur Geschichte der Deutschen Reichsverfassung in Mittelalter und Neuzeit](https://de.wikisource.org/wiki/Quellensammlung_zur_Geschichte_der_Deutschen_Reichsverfassung_in_Mittelalter_und_Neuzeit))
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/7/76/De_Zeumer_V2_545.jpg)
 
@@ -112,3 +112,167 @@ Wenn der Auftrag an mehrere Regierungen ergangen ist, so bestimmt die Bundes-Ver
        So geschehen zu Wien, den fünfzehnten des Monats May im Fahr Ein tausend Achthundert und Zwanzig. (Folgen die Unterschriften.)
 
 ----------------------
+
+552                                        Beilage.                                         [272]
+Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.
+Zusammengestellt von Fritz Salomon nach Pütter, Institutiones iuris publici, 5. Aufl., Göttingen,
+1792, §§ 883-104. wo auch Näheres über Rangverhältnisse und Alternierungen zu finden ist.
+https://de.wikisource.org/wiki/Der_deutsche_Reichstag_in_seiner_Zusammensetzung_im_Jahre_1792
+I. Das Kurfürstenkolleg:
+1. 	Erzbischof von Mainz.	5. 	Pfalzgraf bei Rhein.
+2.	Erzbischof von Trier.	6.	Kurfürst von Sachsen.
+3.	Erzbischof von Cöln.	7.	Kurfürst von Brandenburg.
+4.	König von Böhmen.	8.	Herzog von Braunschweig-Lüneburg.
+
+II. Reichsfürstenrat:
+a) Geistliche Bank:
+1. 	Herzog von Oesterreich.	13. 	Augsburg.		Aebte von:
+2.	Herzog von Burgund.	14.	Hildesheim.	27. 	Fulda.
+3.	Erzbischof von Salzburg.	15.	Paderborn.	28.	Kempten.
+4.	Erzbischof von Besançon.	16.	Freising.	29.	Propst von Elwangen.
+5.	Hoch-und Teutschmeister.	17.	Regensburg.	30.	Johanniter-Meister.
+	Bischöfe von:	18.	Passau.	31.	Probst von Berchtesgaden.
+6.	Bamberg.	19.	Trient.	32.	Probst von Weißenburg.
+7.	Würzburg.	20.	Brixen.		Aebte von
+8.	Worms.	21.	Basel.	33.	Prüm.
+9.	Eichstädt.	22.	Münster.	34.	Stablo.
+10.	Speyer.	23.	Osnabrück	35.	Corvey.
+11.	Straßburg.	24.	Lüttich.	36.	Schwäbische	Prälaten.
+12.	Konstanz.	25.	Lübeck.	37.	Rheinische	
+		26.	Chur.		
+
+36 und 37 sind Curiatstimmen, die gemeinschaftlich geführt werden,
+36 von:
+a) den Aebten und Prälaten von:	9. 	Roth.	b) den Aebtissinnen von:
+1.	Salmannsweiler. [-leer]	10.	Weißenau.	18.	Hegbach.
+2.	Weingarten.	11.	Schussenried.	19.	Gutenzell.
+3.	Ochsenhausen.	12.	Marchthal.	20.	Rotenmünster.
+4.	Elchingen.	13.	Petershausen.	21.	Baindt.
+5.	Irsee.	14.	Wettenhausen.	22.	Söflingen.
+6.	Urspring.	15.	Zwifalten.	23.	St. Jörgen zu Ißny.
+7.	Kaisersheim.	16.	Gengenbach.		
+8.	Roggenburg.	17.	Neresheim.		
+
+37 von:
+1.	Kaisersheim.	4.	Odenheim und Bruchsal.	7.	7. St. Georg in Ißny.
+2.	Ballei Coblenz.	5.	Werden.	8.	St. Corneli-Münster.
+3.	Ballei Elsaß und Burgund	6.	St. Ulrich und St. Afra in Augsburg.	9.	St. Emmeram zu Regensburg.
+[273]  Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.  553
+10.	Essen.	14.	Gernrode.	17.	Burscheid.
+11.	Buchau.	15.	Niedermünster in Regensburg.	18.	Gandersheim.
+12.	Quedlinburg.	16.	Obermünster daselbst.	19.	Thorn.
+13.	Hervord.				
+
+a) Weltliche Bank:
+1. 	Baiern.	21. 	Vorpommern1.	43. 	Hirschfeld.
+2.	Magdeburg.	22.	Hinterpommern.	44.	Nomeny.
+3.	Pfalz-Lautern.	23.	Verden.	45.	Mümpelgard.
+4.	Pfalz-Simmern.	24.	Meklenburg-Schwerin.	46.	Arenberg.
+5.	Pfalz-Neuburg.	25.	Meklenburg-Güstrow.	47.	Hohenzollern.
+6.	Bremen.	26.	Würtenberg.	48.	Lobkowitz.
+7.	Pfalz-Zweibrücken.	27.	Hessen-Cassel.	49.	Salm.
+8.	Pfalz-Veldenz.	28.	Hessen-Darmstadt.	50.	Dietrichstein.
+9.	Sachsen-Weimar.	29.	Baden-Baden.	51.	Nassau-Hadamar.
+10.	Sachsen-Eisenach.	30.	Baden-Durlach.	52.	Nassau-Dillenburg.
+11.	Sachsen-Coburg.	31.	Baden-Hochberg.	53.	Auersberg.
+12.	Sachsen-Gotha.	32.	Holstein-Glückstadt.	54.	Ostfriesland.
+13.	Sachsen-Altenburg.	33.	Sachsen-Lauenburg.	55.	Fürstenberg.
+14.	Brandenburg-Onolzbach.	34.	Minden.	56.	Schwarzenberg.
+15.	Brandenburg-Culmbach.	35.	Holstein-Oldenburg.	57.	Lichtenstein.
+16.	Braunschweig-Zell.	36.	Savoyen.2	58.	Thurn und Taxis.
+17.	Braunschweig-Kalenberg.	37.	Leuchtenberg.	59.	Schwarzburg.
+18.	Braunschweig-Grubenhagen.	38.	Anhalt.	60.	Wetterauische	Grafen
+19.	Braunschweig-Wolffenbüttel.	39.	Henneberg.	61.	Schwäbische	
+20.	Halberstadt.	40.	Schwerin.	62.	Fränkische	
+		41.	Camin.	63.	Westphälische	
+		42.	Ratzeburg.			
+
+60—63 sind Curiatstimmen, die gemeinschaftlich geführt werden,
+60 von:
+1. 	Nassau-Usingen.	14. 	Sayn-Witgenstein-Berleburg.
+2.	Nassau-Weilburg.	15. 	Sayn-Witgenstein-Witgenstein.
+3.	Nassau-Saarbrücken.	16.	Wild- und Rheingraf zu Grumbach.
+4.	Solms-Braunfels.	17.	dgl. zu Rheingrafenstein.
+5.	Solms-Lich.	18.	Leiningen-Hartenburg.
+6.	Solms-Hohen-Solms	19.	Leiningen-Heidesheim und Leiningen-Guntersblum.
+7.	Solms-Rödelheim.	20.	Westerburg, Christophische Linie.
+8.	Solms-Laubach.	21.	Westerburg, Georgische Linie.
+9.	Isenburg-Birstein.	22.	Reußen von Plauen.
+10.	Isenburg - Büdingen- Meerholz- Wächtersbach	23.	Schönburg.
+11.	Stollberg-Gedern-Ortenberg.	24.	Ortenburg.
+12.	Stollberg-Stollberg.	25.	Crichingen.
+13.	Stollberg-Wernigerode.		
+
+61 von:
+1.	Fürst zu Fürstenberg als Graf zu Heiligenberg und Werdenberg.	9.	Truchsessen von Waldburg.
+2.	Gefürstete Aebtissin zu Buchau.	10.	Markgraf von Baden-Baden wegen der Grafschaft Eberstein.
+3.	Comthur der Ballei Elsaß und Burgund als Comthur zu Aschhausen.	11.	Graf von der Leyen wegen Hohen-Geroldseck
+4.	Fürsten und Grafen zu Oettingen.	12.	Grafen Fugger.
+5.	Oesterreich wegen der Grafschaft Menthor.	13.	Oesterreich wegen der Grafschaft Hohenems.
+6.	Churfürst in Bayern wegen der Grafschaft Helfenstein.	14.	Grafen von Traun wegen der Herrschaft Eglof.
+7.	Fürst von Schwarzenberg wegen der Landgrafschaft Klettgau und der Grafschaft Sulz.	15.	Fürst und Abt zu St. Blasien wegen der Grafschaft Bondorf.
+8.	Grafen von Königsegg.	16.	Graf von Stadion wegen Thannhausen.
+Anm.: Großvater von Heiko von der Leyen befand sich zusammen mit Scholz von Edler in Lemberg 1941 (Holocaust)
+
+
+554  Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.  [274]
+17.	Fürst von Taxis wegen der Herrschaft Eglingen.	21.	Grafen von Harrach.
+18.	Grafen von Khevenhüller; Personalisten.	22.	Grafen von Sternberg.
+19.	Grafen von Kufstein.	23.	Graf von Neipperg.
+20.	Fürst von Colloredo; Personalist.	24.	Grafen von Hohenzollern.
+
+62 von: 
+1. 	Fürsten und Grafen von Hohenlohe.	9. 	Grafen von Schönborn wegen der Herrschaft Reichelsberg.
+2.	Grafen von Castell.	10.	Dieselben wegen der Herrschaft Wiesentheid.
+3.	Grafen zu Erbach.	11.	Grafen von Windischgrätz; Personalisten.
+4.	Fürst von Schwarzenberg wegen der Herrschaft Seinsheim oder der gefürsteten Grafschaft Schwarzenberg.	12.	Grafen Ursin von Rosenberg; desgl.
+5.	Die gräflich Limburgischen Allodialerben.	13.	Aeltere Linie der Grafen von Starhemberg; desgl.
+6.	Grafen von Nostiz wegen der Grafschaft Rieneck.	14.	Grafen von Wurmbrand; desgl.
+7.	Fürst von Schwarzenberg wegen der Herrschaft Seinsheim	15.	Graf von Griech; desgl.
+8.	Gräflich Wolfsteinische Allodialerben, nämlich Fürst von Hohenloh-Kirchberg und Graf von Giech.	16.	Graf von Grävenitz.
+		17.	Grafen von Pückler; Personalisten.
+
+63 von: 
+1.	Markgraf von Anspach wegen Sayn-Altenkirchen.	18.	Fürsten zu Salm wegen der Grafschaft Anholt.
+2.	Burggraf von Kirchberg wegen Sayn-Hachenburg.	19.	Grafen von Metternich wegen der Herrschaft Winnenburg und Beilstein.
+3.	König in Preußen wegen der Grafschaft Tecklenburg.	20.	Fürst zu Anhalt-Bernburg-Schaumburg wegen der Grafschaft Holzapfel.
+4.	Wied-Runkel wegen der Obern Grafschaft Wied.	21.	Grafen von Sternberg wegen der Grafschaft Blankenheim und Gerolstein.
+5.	Fürst zu Wied-Neuwied (Direktor dieses Kollegiums).	22.	Grafen von Plettenberg wegen Wittem.
+6.	Landgraf von Hessen-Cassel und Graf zu Lippe-Bückeburg wegen der Grafschaft Schaumburg.	23.	Grafen von Limburg-Stirum wegen der Herrschaft Gehmen.
+7.	Herzog zu Holstein-Gottorp-Oldenburg.	24.	Graf von Wallmoden wegen der Herrschaft Gauborn und Neustadt.
+8.	Grafen von der Lippe.	25.	Graf von Quadt wegen der Herrschaft Wickerad.
+9.	Graf von Bentheim.	26.	Grafen von Ostein wegen der Herrschaft Mylendonk.
+10.	König von England wegen der Grafschaft Hoya.	27.	Grafen von Nesselrode wegen der Herrschaft Reichenstein.
+11.	Derselbe wegen der Grafschaft Diepholz.	28.	Grafen zu der Mark wegen der Grafschaft Schleiden.
+12.	Derselbe wegen der Grafschaft Spiegelberg.	29.	Grafen von Schaesberg wegen der Grafschaft Kerpen und Lommersum.
+13.	Fürst und Grafen von Löwenstein wegen Virneburg.	30.	Grafen zu Salm-Reifferscheid wegen der Herrschaft Dyck.
+14.	Fürst von Kaunitz wegen Rittberg.	31.	Grafen zu der Mark wegen Sassenburg.
+15.	Fürst von Waldeck wegen der Grafschaft Pyrmont.	32.	Grafen von Platen wegen Hallermünde.
+16.	Graf von Törring wegen der Grafschaft Gronsfeld.	33.	Grafen von Sinzendorf wegen Reineck
+17.	Graf von Aspremont wegen der Grafschaft Reckheim oder Reckum.		
+III. Kollegium der Städte:
+a) Rheinische Bank:
+1. 	Cöln. 	6. 	Frankfurt a. M. 	11. 	Nordhausen. 
+2.	Aachen. 	7.	Goslar. 	12.	Dortmund. 
+3.	Lübeck. 	8.	Bremen. 	13.	Friedberg. 
+4.	Worms. 	9.	Hamburg. 	14.	Wetzlar.
+5.	Speier. 	10.	Mühlhausen. 		
+
+
+[275]  Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.  555
+b) Schwäbische Bank:
+1. 	Regensburg. 	14.	Memmingen. 	27.	Offenburg. 
+2.	Augsburg. 	15.	Lindau. 	28.	Leutkirch. 
+3.	Nürnberg. 	16.	Dünkelsbühl. 	29.	Wimpfen. 
+4.	Ulm. 	17.	Biberach. 	30.	Weißenburg im Nordgau. 
+5.	Eslingen. 	18.	Ravensburg. 	31.	Giengen. 
+6.	Reutlingen. 	19.	Schweinfurt. 	32.	Gengenbach. 
+7.	Nördlingen. 	20.	Kempten. 	33.	Zell am Hammersbach. 
+8.	Rotenburg ob d. Tauber. 	21.	Windsheim. 	34.	Buchhorn. 
+9.	Schwäbisch-Hall. 	22.	Kaufbeuren. 	35.	Aalen. 
+10.	Rottweil. 	23.	Weil. 	36.	Buchau. 
+11.	Ueberlingen. 	24.	Wangen. 	37.	Bopfingen. 
+12.	Heilbronn. 	25.	Ißny. 		
+13.	Schwäbisch-Gemünd. 	26.	Pfullendorf. 		
+
+
