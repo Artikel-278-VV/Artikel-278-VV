@@ -7,7 +7,7 @@ Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://
 
 Die Grundgesetze des deutschen Bundes.
 -------------------
-Nr. 218.            (189). Die deutsche Bundes-Akte. — 1815, Juni 8.
+# Nr. 218.            (189). Die deutsche Bundes-Akte. — 1815, Juni 8.
 
 K. Binding, Deutsche Staatsgrundgesetze III S. 19—34.
 
@@ -29,7 +29,7 @@ II Allgemeine Bestimmungen.
        
        Art. IV. Die Angelegenheiten des Bundes werden durch eine Bundesversammlung besorgt, in welcher alle Glieder desselben durch ihre Bevollmächtigten theils einzelne, theils Gesammtstimmen folgendermassen, jedoch unbeschadet ihres Ranges führen:
 
-[261]            Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.                541
+# [261]            Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.                541
 
 1)	Oesterreich ……………………………………………………………………..	1	Stimme
 2)	Preußen …………………………………………………………………………	1	"
@@ -77,7 +77,7 @@ II Allgemeine Bestimmungen.
 
 Ob den mediatisirten vormaligen Reichsständen auch einige Curiatstimmen in Pleno zugestanden werden sollen, wird die Bundes-Versammlung bey der Berathung der organischen Bundes-Gesetze in Erwägung nehmen.
 
-542                               Nr. 218. Deutsche Bundes-Akte. 1815. Art. VII–XI.                                    262
+# 542                               Nr. 218. Deutsche Bundes-Akte. 1815. Art. VII–XI.                                    262
 
        Art. VII. In wie fern ein Gegenstand nach obiger Bestimmung für das Plenum geeignet sey, wird in der engern Versammlung durch Stimmen-Mehrheit entschieden.
        Die der Entscheidung des Pleni zu unterziehenden Beschluß-Entwürfe werden in der engern Versammlung vorbereitet und bis zur Annahme oder Verwerfung zur Reife gebracht; sowohl in der engern Versammlung, als in Pleno werden die Beschlüsse nach der Mehrheit der Stimmen gefaßt, jedoch in der Art, dass in der erstern die absolute, in letzterer aber nur eine auf ⅔ der Abstimmung beruhende Mehrheit entscheidet.
@@ -105,7 +105,7 @@ II. Besondere Bestimmungen.
 
 Außer den in den vorhergehenden Artikeln bestimmten auf die Feststellung des Bundes gerichteten Punkten sind die verbündeten Mitglieder übereingekommen, hiemit über folgende Gegenstände die in den nachstehenden Artikeln enthaltenen Bestimmungen zu treffen, welche mit jenen Artikeln gleiche Kraft haben sollen.
 
-[263]                              Nr. 218. Deutsche Bundes-Akte. 1815, Art.XII—XIV.                               543
+#[263]                              Nr. 218. Deutsche Bundes-Akte. 1815, Art.XII—XIV.                               543
 
        Art. XII. Diejenigen Bundesglieder, deren Besitzungen nicht eine Volkszahl von 300,000 Seelen erreichen, werden sich mit den ihnen verwandten Häusern oder andern Bundes-Gliedern mit welchen sie wenigstens eine solche Volkszahl ausmachen zu Bildung eines gemeinschaftlichen Obersten-Gerichts vereinigen. [Selbstbestimmungsrecht d. Völker]
 
@@ -136,7 +136,7 @@ c) es sollen ihnen überhaupt in Rücksicht ihrer Personen, Familien und Besitzu
        
 Diese Rechte werden jedoch nur nach der Vorschrift der Landesgesetze ausgeübt.
 
-544                         Nr. 218. Deutsche Bundes-Akte. 1815. Art. XV—XVIII.                                [264]
+# 544                         Nr. 218. Deutsche Bundes-Akte. 1815. Art. XV—XVIII.                                [264]
 
 In den durch den Frieden von Lunneville vom 9. Februar 1801 von Deutschland abgetretenen und jetzt wieder damit vereinigten Provinzen werden bey Anwendung der obigen Grundsätze auf den ehemaligen unmittelbaren Reichsadel diejenigen Beschränkungen stattfinden, welche die dort bestehenden besondern Verhältnisse nothwendig machen.
 
@@ -176,7 +176,7 @@ Dieses soll auch da Statt finden, wo die Aufhebung der Posten seit 1803 gegen de
        
        Zur Urkunde dessen haben sämmtliche Bevollmächtigte den gegenwärtigen Vertrag unterzeichnet und mit ihren Wappen besiegelt. So geschehen Wien den achten Juny im Jahr eintausend achthundert und fünfzehn. (Folgen die Unterschriften.)
 
-[265]              Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.                     545
+# [265]              Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.                     545
 
 K. Binding, Deutsche Staatsgrundgesetze III, S. 37-58; der voranstehende Beschluß der Plenarsitzung nach Corpus Iuris Confoederationis Germanicae II, S. 101–111.
 
@@ -339,7 +339,7 @@ Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://
 
 552                                        Beilage.                                         [272]
 
-Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.
+# Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.
 
 Zusammengestellt von Fritz Salomon nach Pütter, Institutiones iuris publici, 5. Aufl., Göttingen, 1792, §§ 883-104. wo auch Näheres über Rangverhältnisse und Alternierungen zu finden ist.
 
