@@ -40,3 +40,30 @@ Hochwohl- und Wohlgebornen nachstehende Erklärung mitzutheilen:
        Kaiserstaates, die Aufrechterhaltung der neuen Ordnung der Dinge in Deutschland und die
        Befestigung der inneren und äußeren Ruhe sich angelegen
        seyn lassen werden.
+
+       Daß diese kostbare Ruhe der Hauptzweck des rheinischen Bundes ist, davon finden die
+       bisherigen Reichsmitstände der Souverains, in deren Namen die gegenwärtige Erklärung
+       geschieht, den deutlichen Beweis darin, daß jedem unter ihnen, dessen Lage eine Theilnahme
+       daran erwünschlich machen kann, der Beitritt zu demselben offen gelassen ist. [1918 angedacht,
+       1919 in WRV u. 1920 durch Versailles verboten]
+
+       Indem wir uns dieses höchsten und hohen Auftrags hierdurch schuldigst entledigen; so haben wir
+       zugleich die Ehre, die Versicherung der hochachtungsvollsten Ergebenheit hinzuzufügen,
+       womit wir sind
+Eurer Excellenzien, Hochwürden, Hoch-, Hochwohl- und Wohlgebornen
+       Regensburg, den 1. August 1806.                             gehorsamst-ergebenste
+Freiherr von Rechberg, Ihrer königlichen Majestät von Baiern geheimer Rath
+       und bisheriger Comitial-Gesandter.
+Freiherr von Seckendorf, Ihrer königlichen Majestät von Würtemberg Staatsminister
+       und bisheriger Comitial-Gesandter.
+Churfürstlich-Reichs-Erzkanzlerischer Staatsminister und Directorial-Gesandter,
+       Freiherr von Albini. 
+Der churfürstlich Badensche Gesandte, Albrecht Freiherr von Seckendorf.
+Landgräflich Hessischer Gesandter, Freiherr von Türkheim.
+Edmund Freiherr von Schmiz-Grollenburg, Seiner hochfürstlichen Durchlaucht
+       zu Hohenzollern-Hechingen und des hochfürstlichen Gesammthauses
+       Hohenzollern Gesandter.
+Weihbischof und Domdechant von Wolf, als Salm-Kyrburgischer-Comitial-Gesandter.
+Von Mollenbec, von wegen Seiner hochfürstlichen Durchlaucht zu Isenburg.
+
+-----------------------
