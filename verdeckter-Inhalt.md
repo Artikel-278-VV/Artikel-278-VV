@@ -215,18 +215,22 @@ S. 165 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 2
 „deutsche Staatsangehörigkeit“ n. RGBl. I 1934 S. 85 (vgl. RGBl. I 1933 S. 480, heute Art. 16 I GG) und
 nazistischer Reichsbürger, dem „Deutschen“ Staatsbürger n. RGBl. I 1935 S. 1146 (heute Art. 116 I GG)
 
-Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935
+S. 166 ... Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935
 
-Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935 (transk.)
+S. 167 ... Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935 (transk.)
 
-1. Verordnung zum Reichsbürgergesetz (Beamte, Richter, Staatsanwälte, Anwälte, Abgeordnete, Kanzler, Parteigründer,
-Vereinsgründer, Lehrer, etc. pp., das „Wir“ und „Uns“)
+S. 168 ... 1. Verordnung zum Reichsbürgergesetz (Beamte, Richter, Staatsanwälte, Anwälte, Abgeordnete, Kanzler, Parteigründer,
+Vereinsgründer, Lehrer, etc. pp., das „Wir“ und „Uns“) RGBl. I 1935 Nr. 125 S. 1333 v. 14.11.1935
 
-Verordnung über die deutsche Staatsangehörigkeit vom 05.02.1934 (vgl. StAG-RG v. 15.07.1999)
+S. 169 ... 1. Verordnung zum Reichsbürgergesetz (Beamte, Richter, Staatsanwälte, Anwälte, Abgeordnete, Kanzler, Parteigründer,
+Vereinsgründer, Lehrer, etc. pp., das „Wir“ und „Uns“) RGBl. I 1935 Nr. 125 S. 1334 v. 14.11.1935
 
-Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit.
+S. 170 ... Verordnung über die deutsche Staatsangehörigkeit vom 05.02.1934 (vgl. StAG-RG v. 15.07.1999) RGBl. I 1934 Nr. 14 S. 85 – Auslöschung Länderangehörigkeiten und deutsche Reichsangehörigkeit (WRV)
 
-S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) vom 22. Juli 1913 (RuStAG) v. 1929, Isay
+S. 171 ... Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit. RGBl. I 1933 Nr. 81 S. 480 als StA Auführungs- und Überleitungungsgesetz (Art. 109 WRV u. Art. 110 WRV)
+
+S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den Staatsangehörigkeitsverträgen von OVG Rat Dr. Ernst Isay, Berlin 1929 (S. 1)
+
 
 - 4
 
