@@ -1,5 +1,5 @@
 # Die Grundgesetze des deutschen Bundes.
-(transk. vom Original Faksimile aus der [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 289-304 o. [Quellensammlung zur Geschichte der Deutschen Reichsverfassung in Mittelalter und Neuzeit](Quellensammlung_zur_Geschichte_der_Deutschen_Reichsverfassung_in_Mittelalter_und_Neuzeit))
+(transk. vom Original Faksimile aus der [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 289-304  o. [Quellensammlung zur Geschichte der Deutschen Reichsverfassung in Mittelalter und Neuzeit](https://de.wikisource.org/wiki/Quellensammlung_zur_Geschichte_der_Deutschen_Reichsverfassung_in_Mittelalter_und_Neuzeit))
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/3/36/De_Zeumer_V2_540.jpg/800px-De_Zeumer_V2_540.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
