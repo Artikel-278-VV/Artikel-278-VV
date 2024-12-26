@@ -3,7 +3,7 @@
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/7/71/De_Zeumer_V2_532.jpg/800px-De_Zeumer_V2_532.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_1919)
+Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://commons.wikimedia.org/w/index.php?title=Category:Quellensammlung_zur_Geschichte_der_deutschen_Reichsverfassung&filefrom=De+Zeumer+V2+401.jpg#mw-category-media)
 
 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806. Corpus Iuris Confoederationis Germanicae I, S. 70f. Dietatum Ratisbonae die 1. Augusti 1806 per Archicancellariengem.
 
