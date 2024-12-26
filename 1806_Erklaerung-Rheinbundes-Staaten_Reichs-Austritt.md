@@ -20,11 +20,23 @@ Hochwohl- und Wohlgebornen nachstehende Erklärung mitzutheilen:
        haben auch diese letzte Hoffnung vernichtet und die gänzliche Unzulänglichkeit der bisherigen Verfassung auf's Neue außer allem Zweifel gesetzt. 
        
        Bei dem Drange dieser wichtigen Betrachtungen haben die Souverains und Fürsten des
-       mittäglichen und westlichen Deutschlands sich bewogen gefunden, einen neuen und den Zeitumständen angemessenen Bund zu schließen. Zudem sie sich durch gegenwärtige Erklärung von ihrer bisherigen Verbindung mit dem deutschen Reichskörper
-       lossagen, befolgen sie bloß das durch frühere Vorgänge und selbst durch Erklärungen der mächtigeren Reichsstände aufgestellte System. Sie hätten zwar den leeren Schein einer erloschenen Verfassung beibehalten können, allein sie haben
-       im Gegentheil ihrer Würde und der Reinheit ihrer Zwecke angemessener geglaubt, eine offene und freie Erklärung ihres Entschlusses und der Beweggründe, durch welche sie geleitet worden sind, abzugeben.
+       mittäglichen und westlichen Deutschlands sich bewogen gefunden, einen neuen und den
+       Zeitumständen angemessenen Bund zu schließen. Zudem sie sich durch gegenwärtige
+       Erklärung von ihrer bisherigen Verbindung mit dem deutschen Reichskörper
+       lossagen, befolgen sie bloß das durch frühere Vorgänge und selbst durch Erklärungen
+       der mächtigeren Reichsstände aufgestellte System. Sie hätten zwar den leeren Schein
+       einer erloschenen Verfassung beibehalten können, allein sie haben im Gegentheil ihrer
+       Würde und der Reinheit ihrer Zwecke angemessener geglaubt, eine offene und freie
+       Erklärung ihres Entschlusses und der Beweggründe, durch welche sie geleitet worden sind,
+       abzugeben.
        
-       Vergeblich aber würden sie sich geschmeichelt haben, den gewünschten Endzweck zu erreichen, wenn sie sich nicht zugleich eines mächtigen Schutzes versichert hätten, wozu sich nunmehr der nämliche Monarch, dessen Absichten sich stets
-       mit dem wahren Interesse Deutschlands übereinstimmend gezeigt haben, verbindet. Eine so mächtige Garantie ist in doppelter Hinsicht beruhigend. Sie gewährt die Versicherung, dass Se. Majestät der Kaiser von Frankreich,
-       Allerhöchstdero Ruhms halber ebenso sehr, als wegen des eigenen Interesse des französischen Kaiserstaates, die Aufrechterhaltung der neuen Ordnung der Dinge in Deutschland und die Befestigung der inneren und äußeren Ruhe sich angelegen
+       Vergeblich aber würden sie sich geschmeichelt haben, den gewünschten Endzweck zu erreichen,
+       wenn sie sich nicht zugleich eines mächtigen Schutzes versichert hätten, wozu sich nunmehr
+       der nämliche Monarch, dessen Absichten sich stets mit dem wahren Interesse Deutschlands
+       übereinstimmend gezeigt haben, verbindet. Eine so mächtige Garantie ist in doppelter
+       Hinsicht beruhigend. Sie gewährt die Versicherung, dass Se. Majestät der Kaiser von Frankreich,
+       
+       Allerhöchstdero Ruhms halber ebenso sehr, als wegen des eigenen Interesse des französischen
+       Kaiserstaates, die Aufrechterhaltung der neuen Ordnung der Dinge in Deutschland und die
+       Befestigung der inneren und äußeren Ruhe sich angelegen
        seyn lassen werden.
