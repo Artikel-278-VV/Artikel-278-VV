@@ -131,24 +131,29 @@ S. 117 ... VzA DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzung
 - 3
 
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 206 „Verbotene Rechtsgeschäfte“
+S. 118 ... VzA DER AHK IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 134 (S. 45) „Verbotene Rechtsgeschäfte“
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
-vom 12. April 1950 – No. 14 – Besatzungsstatut S. 149 (S. 47)
+S. 120 ... VzA DER AHK IN DEUTSCHLAND vom 12. April 1950 – No. 14 – Besatzungsstatut S. 149 (S. 47) Inhalt
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
-vom 12. April 1950 – No. 14 – Besatzungsstatut S. 151 (S. 49)
+S. 121 ... VzA DER AHK IN DEUTSCHLAND vom 12. April 1950 – No. 14 – Besatzungsstatut S. 150 (S. 48) Entscheidung Nr. 5
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
-vom 14. April 1950 – No. 15 – Besatzungsstatut S. 165 (S. 63)
+S. 122 ... VzA DER AHK IN DEUTSCHLAND vom 12. April 1950 – No. 14 – Besatzungsstatut S. 151 (S. 49) Inhalt
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 25. Februar 1950 – No. 46 – Besatzungsstatut S. 262 – „Auflösen des [Bundes-]Staates Preußen“
+S. 123 ... VzA DER AHK IN DEUTSCHLAND vom 12. April 1950 – No. 14 – Besatzungsstatut S. 152 (S. 50) Verordnung Nr. 208 u. Direktive "auf Grund Gesetz Nr. 13" (AHK)
 
-Bayerisches Gesetz- u. Verordnungsblatt Nr. 23 vom 8. Dezember 1946
+S. 124 ... VzA DER AHK IN DEUTSCHLAND vom 12. April 1950 – No. 14 – Besatzungsstatut S. 153 (S. 51) Verfügung Nr. 151
 
-Bayerisches Gesetz- u. Verordnungsblatt Nr. 10 vom 1. Juli 1946
+S. 125 ... VzA DER AHK IN DEUTSCHLAND vom 12. April 1950 – No. 14 – Besatzungsstatut S. 154 (S. 52) Inhalt
 
-Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946
+S. 117 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 165 (S. 63)
+
+S. 117 ... VzA DER AHK IN DEUTSCHLAND vom 25. Februar 1950 – No. 46 – Besatzungsstatut S. 262 – „Auflösen des [Bundes-]Staates Preußen“
+
+S. 117 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 23 vom 8. Dezember 1946
+
+S. 117 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 10 vom 1. Juli 1946
+
+S. 117 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946
 
 S. 152 ... AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
 
