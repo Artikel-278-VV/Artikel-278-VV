@@ -239,6 +239,10 @@ Source: [Wikipedia](https://de.wikisource.org/wiki/Gesetz_%C3%BCber_den_Neuaufba
 
 S. 171 ... Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit. RGBl. I 1933 Nr. 81 S. 480 als StA Auführungs- und Überleitungungsgesetz (Art. 109 WRV u. Art. 110 WRV)
 
+# Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit v. 1933
+[![Reichsgesetzblatt I 1933 Nr. 81 S. 480](https://upload.wikimedia.org/wikipedia/commons/f/fc/Deutsches_Reichsgesetzblatt_33T1_081_0480.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+
 S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den Staatsangehörigkeitsverträgen von OVG Rat Dr. Ernst Isay, Berlin 1929 (S. 1)
 
 
