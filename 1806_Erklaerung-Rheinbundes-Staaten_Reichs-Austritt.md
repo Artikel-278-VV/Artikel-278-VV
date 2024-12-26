@@ -1,5 +1,5 @@
 # Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche v. 1806.
-(transk. aus [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 258-259)
+(transk. aus [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 258-259 o. [Quellensammlung zur Geschichte der Deutschen Reichsverfassung in Mittelalter und Neuzeit](Quellensammlung_zur_Geschichte_der_Deutschen_Reichsverfassung_in_Mittelalter_und_Neuzeit))
 
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/7/71/De_Zeumer_V2_532.jpg/800px-De_Zeumer_V2_532.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
