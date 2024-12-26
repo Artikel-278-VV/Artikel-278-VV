@@ -5,7 +5,7 @@ You can click the Preview link to take a look at your changes.
 
 
 # Artikel 278 Versailler Vertrag
-Weblinks zu den **Dokumenten** und [vwN](https://github.com/Artikel-278-VV/Artikel-278-VV):
+Weblinks zu den **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV):
 * [Aufsatz nebst Anlagen, Beilagen und eine OVG Beschwerde](https://drive.proton.me/urls/CVVMDDE9YW#ZE7PDaXtEnlZ)
 * [Waffe-StAG-Video](https://drive.proton.me/urls/S0H5J89YNM#k0MFtlrKjQQC)
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
