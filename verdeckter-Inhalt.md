@@ -122,21 +122,13 @@ Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946
 
 S. 152 ... AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
 
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945
+AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
 
-Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
+AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3) Gesetz Nr. 4
 
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3)
+AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 27 (S. 4) Gesetz Nr. 4 und Gesetz Nr. 5
 
-Gesetz Nr. 4
-
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 27 (S. 4)
-
-Gesetz Nr. 4 und Gesetz Nr. 5
-
-AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 28 (S. 5)
-
-Gesetz Nr. 5
+AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 28 (S. 5) Gesetz Nr. 5
 
 Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935
 
@@ -153,3 +145,61 @@ S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) vom 22.
 
 - 4
 
+S. 185 ... Der völkerrechtswidrige Artikel 278 Versailler Vertrag!
+
+S. 187 ... Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913 (RuStAG) v. 1914, Cahn, v. Welser
+
+Das (Weimarer) Dritte Reich als Reichsrepublik nun auf Basis von Ländern statt Staaten
+
+S. 190 ... „Die Verfassung des Deutschen Reichs“ Vom 11.08.1919. RGBl. Nr. 152
+
+„Die Verfassung des Deutschen Reichs“. Vom 11.08.1919. Art.109, 110 WRV
+
+„Der größte Moment in der Geschichte“ – Der Versailler Vertrag & J. P. Morgan Jr.
+
+S. 192 ... Gesetz über den Friedensschluß.
+
+Gesetz über den Friedensschluß. Art. 278 VV.
+
+Gesetz über den Friedensschluß. Art. 278 VV. de
+
+Gesetz über den Friedensschluß. Art. 292 VV. de
+
+Die tatsächlichen Unterzeichner einen Tag zuvor am 11.11.1918.
+
+Waffenstillstandsabkommen vom 11.11.1918 mWv 11.00 Uhr (Karneval).
+
+- Bundesrecht gemäß Art. 1 bis 3 I bis III BVerf. v. 1867/71/18
+
+S. 200 ... Auszug aus „Wilhelm II. Ereignisse und Gestalten 1878-1919“ v. 1922 S. 244
+
+Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
+Letzter Recht-Stand mit Änderung der Reichsverfassung (noch RVerf.) am Mo., den 28.10.1918
+
+Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus?
+
+Was ging den Änderungen der Reichsverfassung erstmals seit 1878, am 28.10.1918, voraus? Der Erlaß d.s.Ts..
+
+Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
+
+[257]Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.537
+
+538Nr. 217. Erklärung des Kaisers Franz II. 1806.[258]
+
+540 Anhang.[260]
+
+[261]Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.541
+
+[265]Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.545
+
+552 Beilage. [272]
+
+[273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
+
+540 Anhang Die Grundgesetze des deutschen Bundes. [260]
+
+[261] Anhang Nr. 218 Deutsche Bundes-Akte. 1815. Art. V. VI. 541
+
+- 6
+
+  
