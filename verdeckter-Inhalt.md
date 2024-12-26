@@ -196,10 +196,9 @@ S. 156 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 4
 S. 158 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 5 (S. 4) Proklamation Nr. 1 – „Aufstellung des Kontrollrates“ und Befehl Nr. 1
 
 S. 159 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 6 (S. 5) Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
+
 „deutsche Staatsangehörigkeit“ n. RGBl. I 1934 S. 85 (vgl. RGBl. I 1933 S. 480, heute Art. 16 I GG) und
 nazistischer Reichsbürger, dem „Deutschen“ Staatsbürger n. RGBl. I 1935 S. 1146 (heute Art. 116 I GG)
-
-S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
 
 S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3) Gesetz Nr. 4
 
