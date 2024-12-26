@@ -241,32 +241,49 @@ S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu d
 
 - 4
 
-S. 185 ... Der völkerrechtswidrige Artikel 278 Versailler Vertrag!
+S. 173 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 2) Vorwort
 
-S. 187 ... Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913 (RuStAG) v. 1914, Cahn, v. Welser
+S. 175 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 4) Inhaltsverzeichnis
 
-Das (Weimarer) Dritte Reich als Reichsrepublik nun auf Basis von Ländern statt Staaten
+S. 176 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 5) Einleitung
 
-S. 190 ... „Die Verfassung des Deutschen Reichs“ Vom 11.08.1919. RGBl. Nr. 152
+S. 177 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 6) Einleitung - "Begriff und Inhalt der Staatsangehörigkeit"
 
-„Die Verfassung des Deutschen Reichs“. Vom 11.08.1919. Art.109, 110 WRV
+S. 179 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 8) Einleitung - "Feststellung der Staatsangehörigkeit"
 
-„Der größte Moment in der Geschichte“ – Der Versailler Vertrag & J. P. Morgan Jr.
+S. 182 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913 RuStAG vom 22.07.1913 (RoStAG, §§ 1 u. 37 RuStAG ./. Art. 3 RVerf. u. § 26 BuStAG, S. 11) v. Norwegen!
 
-S. 192 ... Gesetz über den Friedensschluß.
+S. 184 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 13) Isay stützte sich leider auf Dr. Cahn statt auf Frh. v. Welser, womit § 37 RuStAG (RoStAG) nicht kommentiert!
 
-Gesetz über den Friedensschluß. Art. 278 VV.
+S. 185 ... Der völkerrechtswidrige Artikel 278 Versailler Vertrag! Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den ~Verträgen (S. 14)
+Genozidal-Artikel 278 Versailler Vertrag!
 
-Gesetz über den Friedensschluß. Art. 278 VV. de
+S. 187 ... Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913. Hans Freiherr von Welser in München.C.H.Beck v. 1914, 4. Abs. S. 167 Pkt. 4.
 
-Gesetz über den Friedensschluß. Art. 292 VV. de
+S. 188 ... Das (Weimarer) Dritte Reich als Reichsrepublik nun auf Basis von Ländern statt Staaten mit Weimarer Reichsverfassung (WRV, Staatsgrundgesetz) v. 11.08.1919 mWv 14.08.1919 (vgl. BV)
 
-Die tatsächlichen Unterzeichner einen Tag zuvor am 11.11.1918.
+S. 189 ... „Die Verfassung des Deutschen Reichs“ Vom 11.08.1919 RGBl. 1919 Nr. 152 (Nr. 6982) S. 1383 ff.
 
-Waffenstillstandsabkommen vom 11.11.1918 mWv 11.00 Uhr (Karneval).
+S. 190 ... „Die Verfassung des Deutschen Reichs“. Vom 11.08.1919 Art. 109 WRV u. Art. 110 WRV – RGBl. 1919 Nr. 152 (Nr. 6982) S. 1404 (Weimarer Dritte Reich Käfig)
+
+S. 191 ... „Der größte Moment in der Geschichte“ – Der Versailler Vertrag & J. P. Morgan Jr. „Peace Treaty at Versailles“ vom 28.06.1919 zwischen Entente und „Königlich Deutscher Regierung“, laut Rubrum, die es seit 9/11 1918 nicht mehr gab.
+
+S. 192 ... Gesetz über den Friedensschluß zwischen Deutschland und den alliierten und assoziierten Mächten. RGBl. 1919 Nr. 140 (Nr. 6958) S. 687 bis S. 1349 v. 16.07.1919
+
+S. 193 ... Gesetz über den Friedensschluß zwischen Deutschland und den alliierten und assoziierten Mächten. RGBl. 1919 Nr. 140 (Nr. 6958) S. 1086 v. 16.07.1919 (Art. 278 VV)
+
+S. 194 ... Gesetz über den Friedensschluß zwischen Deutschland und den alliierten und assoziierten Mächten. RGBl. 1919 Nr. 140 (Nr. 6958) S. 1087 v. 16.07.1919
+
+S. 195 ... Gesetz über den Friedensschluß zwischen Deutschland und den alliierten und assoziierten Mächten. RGBl. 1919 Nr. 140 (Nr. 6958) S. 1101 v. 16.07.1919 – Anti-Friedens Art. 292 VV (vs. Brest-Litowsk)
+
+S. 196 ... Die tatsächlichen Unterzeichner einen Tag zuvor am 11.11.1918 eine „sozialistische“ Revolutionsregierung n. RGBl. Nr. 152 (GesetzNr.: 6528) S. 1303
+
+S. 197 ... Die tatsächlichen Unterzeichner einen Tag zuvor am 11.11.1918 eine „sozialistische“ Revolutionsregierung n. RGBl. Nr. 152 (GesetzNr.: 6528) S. 1304
+
+S. 198 ... Waffenstillstandsabkommen vom 11.11.1918 mWv 11.00 Uhr (Karneval) Waffenstillstand von Compiègne (Erzberger ohne rechtsverbindliche Vollmachten des geputschten Kaisers)
 
 
-- Bundesrecht gemäß Art. 1 bis 3 I bis III BVerf. v. 1867/71/18
+# Bundesrecht gemäß Art. 1 bis 3 I bis III BVerf. v. 1867/71/18
 
 S. 200 ... Auszug aus „Wilhelm II. Ereignisse und Gestalten 1878-1919“ v. 1922 S. 244
 
