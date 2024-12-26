@@ -7,7 +7,7 @@ Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://
 
 Die Grundgesetze des deutschen Bundes.
 -------------------
-# Nr. 218.            (189). Die deutsche Bundes-Akte. — 1815, Juni 8.
+# Nr. 218. (189). Die deutsche Bundes-Akte. — 1815, Juni 8.
 
 K. Binding, Deutsche Staatsgrundgesetze III S. 19—34.
 
