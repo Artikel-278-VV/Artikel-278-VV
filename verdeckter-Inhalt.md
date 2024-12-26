@@ -229,6 +229,11 @@ S. 170 ... 2. Verordnung über die deutsche Staatsangehörigkeit vom 05.02.1934 
 
 S. 000 ... Gesetz über den "Neuaufbau des [Dritten-]Reichs" mit abnehmendem Weimar. RGBl. I 1933 Nr. 11 S. 75 (Staatsgrundgesetze, vgl. RGBl. I 1934 Nr. 14 S. 85) - NICHT ENTHALTEN
 
+# RGBl. I 1933 Nr. 11 S. 75
+[![alt text](https://upload.wikimedia.org/wikipedia/commons/e/ea/RGBl_1934_1_75.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+Source: [Wikipedia](https://de.wikisource.org/wiki/Gesetz_%C3%BCber_den_Neuaufbau_des_Reichs)
+
 S. 171 ... Gesetz über den Widerruf von Einbürgerungen und die Aberkennung der deutschen Staatsangehörigkeit. RGBl. I 1933 Nr. 81 S. 480 als StA Auführungs- und Überleitungungsgesetz (Art. 109 WRV u. Art. 110 WRV)
 
 S. 172 ... Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG) u. zu den Staatsangehörigkeitsverträgen von OVG Rat Dr. Ernst Isay, Berlin 1929 (S. 1)
