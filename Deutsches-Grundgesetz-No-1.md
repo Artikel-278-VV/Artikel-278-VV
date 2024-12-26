@@ -338,10 +338,11 @@ Wenn der Auftrag an mehrere Regierungen ergangen ist, so bestimmt die Bundes-Ver
 Source: [Quellensammlung zur Geschichte der deutschen Reichsverfassung](https://commons.wikimedia.org/w/index.php?title=Category:Quellensammlung_zur_Geschichte_der_deutschen_Reichsverfassung&filefrom=De+Zeumer+V2+401.jpg#mw-category-media)
 
 552                                        Beilage.                                         [272]
+
 Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.
-Zusammengestellt von Fritz Salomon nach Pütter, Institutiones iuris publici, 5. Aufl., Göttingen,
-1792, §§ 883-104. wo auch Näheres über Rangverhältnisse und Alternierungen zu finden ist.
-https://de.wikisource.org/wiki/Der_deutsche_Reichstag_in_seiner_Zusammensetzung_im_Jahre_1792
+
+Zusammengestellt von Fritz Salomon nach Pütter, Institutiones iuris publici, 5. Aufl., Göttingen, 1792, §§ 883-104. wo auch Näheres über Rangverhältnisse und Alternierungen zu finden ist.
+
 I. Das Kurfürstenkolleg:
 1. 	Erzbischof von Mainz.	5. 	Pfalzgraf bei Rhein.
 2.	Erzbischof von Trier.	6.	Kurfürst von Sachsen.
