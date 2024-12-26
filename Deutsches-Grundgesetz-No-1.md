@@ -29,7 +29,7 @@ II Allgemeine Bestimmungen.
        
        Art. IV. Die Angelegenheiten des Bundes werden durch eine Bundesversammlung besorgt, in welcher alle Glieder desselben durch ihre Bevollmächtigten theils einzelne, theils Gesammtstimmen folgendermassen, jedoch unbeschadet ihres Ranges führen:
 
-# [261]            Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.                541
+# [261]  Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.  541
 
 1)	Oesterreich ……………………………………………………………………..	1	Stimme
 2)	Preußen …………………………………………………………………………	1	"
