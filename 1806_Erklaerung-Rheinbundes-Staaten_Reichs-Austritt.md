@@ -1,5 +1,9 @@
-Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche v. 1806.
+# Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche v. 1806.
 (transk. aus [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j) S. 258-259)
+
+[![alt text](https://commons.wikimedia.org/w/index.php?title=Category:Quellensammlung_zur_Geschichte_der_deutschen_Reichsverfassung&filefrom=De+Zeumer+V2+401.jpg#/media/File:De_Zeumer_V2_532.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_1919)
 
 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806. Corpus Iuris Confoederationis Germanicae I, S. 70f. Dietatum Ratisbonae die 1. Augusti 1806 per Archicancellariengem.
 
