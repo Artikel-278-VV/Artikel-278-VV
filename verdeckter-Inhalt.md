@@ -46,7 +46,7 @@ S. 18 ... Unterzeichner für Frankreich, UdSSR (RF), UK und Nordirland (fehlt)
 
 S. 19 ... Unterzeichner James Baker III, für BRD Genscher und für DDR Hans Joachim Meyer
 
-S. 20 ... Inkrafttreten 2+4 Vertrag: 15. März 1919 (15.03.1991 wie 1919)
+S. 20 ... Inkrafttreten 2+4 Vertrag: 15. März 1991 (15.03.1991 wie 1919), mithin also Ende der Aussetzung der Wirksamkeit alle Vier (Entente-Versailles)
 
 S. 21 ... Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
 
