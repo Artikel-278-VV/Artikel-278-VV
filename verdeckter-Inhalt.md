@@ -200,11 +200,20 @@ S. 159 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 6
 „deutsche Staatsangehörigkeit“ n. RGBl. I 1934 S. 85 (vgl. RGBl. I 1933 S. 480, heute Art. 16 I GG) und
 nazistischer Reichsbürger, dem „Deutschen“ Staatsbürger n. RGBl. I 1935 S. 1146 (heute Art. 116 I GG)
 
-S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3) Gesetz Nr. 4
+S. 160 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 7 (S. 6) Gesetz Nr. 1 1. p) bis z) und Artikel II „Aufhebung von Nazi-Gesetzen“
 
-S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 27 (S. 4) Gesetz Nr. 4 und Gesetz Nr. 5
+S. 161 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 22 (S. 1) Proklamation Nr. 3 I bis IV
 
-S. 155 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 28 (S. 5) Gesetz Nr. 5
+S. 162 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 v. 29.10.1945 Seite 23 (S. 2) Proklamation Nr. 3 V und Gesetz Nr. 3
+
+S. 163 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 26 (S. 3) Gesetz Nr. 4
+
+S. 164 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 27 (S. 4) Gesetz Nr. 4 und Gesetz Nr. 5
+
+S. 165 ... AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 2 v. 30.11.1945 Seite 28 (S. 5) Gesetz Nr. 5
+
+„deutsche Staatsangehörigkeit“ n. RGBl. I 1934 S. 85 (vgl. RGBl. I 1933 S. 480, heute Art. 16 I GG) und
+nazistischer Reichsbürger, dem „Deutschen“ Staatsbürger n. RGBl. I 1935 S. 1146 (heute Art. 116 I GG)
 
 Reichsbürgergesetz verkündigt auf dem Nürnberger Parteitag am 15.09.1935
 
