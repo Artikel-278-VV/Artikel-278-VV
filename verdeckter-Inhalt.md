@@ -368,42 +368,54 @@ S. 298 ... [269] Nr. 219. Wiener Schluß-Akte. 1820. Art. XXXVI–XLVI. 549
 
 S. 299 ... 550 Anhang Nr. 219. Wiener Schluß-Akte. 1820. Art. XLVII–LVIL. [270]
 
-552 Beilage.[272]
+S. 300 ... [271] 219. Wiener Schluß-Akte. 1820. Art. LVIII–LXV. 551
 
-[273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
+S. 301 ... 552 Beilage. [272] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792.
 
-Vorwort zum Verfassungsrecht des Deutschen Reiches von v. Rönne V
+S. 302 ... [273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
 
-Einleitung zum Verfassungsrecht des Deutschen Reiches von v. Rönne I. S. 1
+S. 303 ... 554 Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. [274]
 
-2. Abschnitt. Kompetenz der Reichsgewalt im Deutschen Reich von v. Rönne I. S. 40
+S. 304 ... [275] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 555
+
+S. 305 ... Vorwort zum Verfassungsrecht des Deutschen Reiches von v. Rönne V - Vorwort
+
+S. 307 ... Einleitung zum Verfassungsrecht des Deutschen Reiches von v. Rönne I. S. 1 - Einleitung
+
+S. 335 ... 2. Abschnitt. Kompetenz der Reichsgewalt im Deutschen Reich von v. Rönne I. S. 40
+
+S. 352 ... 3. Abschnitt. Kompetenz der Reichsgewalt im Deutschen Reich von v. Rönne II. S. 57 (nur 1. Seite enthalten)
  
-Reichs- und Staatsangehörigkeit im Deutschen Reich von v. Rönne IV. S. 102
+S. 353 ... Reichs- und Staatsangehörigkeit im Deutschen Reich von v. Rönne IV. S. 102
 
-Schutze des Deutschen Reiches und Bundesverfassung von v. Rönne XI. S. 147
+S. 365 ... Zoll- und Handelssystem des Deutschen Reich von v. Rönne V. 1. Stk. S. 114
 
-Das Reichspräsidium. Organe d. Reichsgewalt d. Deutschen Reich von v. Rönne S. 156
+S. 371 ... Schutze des Deutschen Reiches und Bundesverfassung von v. Rönne XI. S. 147 - Die Organe d. Reichsgewalt (Bundesgewalt)
 
-Verfassungsmäßige Rechte der Reichsangehörigen von v. Rönne S. 171
+S. 380 ... Das Reichspräsidium. Organe der Reichsgewalt des Deutschen Reich von v. Rönne S. 156
 
-Geschäftsordnung des Reichstages. von v. Rönne S. 177
+S. 386 ... Das Reichspräsidium. Organe der Reichsgewalt des Deutschen Reich von v. Rönne S. 162
 
-Reichsämter und Reichsbeamte des Deutschen Reiches von v. Rönne S. 200
+S. 299 ... Verfassungsmäßige Rechte der Reichsangehörigen von v. Rönne S. 171
 
-Preuß. Gesetzbl. S. 143 – Im Namen der allerheiligsten und untheilbaren Dreieinigkeit.
+S. 299 ... Geschäftsordnung des Reichstages. von v. Rönne S. 177
 
-Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820.
+S. 299 ... Reichsämter und Reichsbeamte des Deutschen Reiches von v. Rönne S. 200
 
-Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
+S. 299 ... Preuß. Gesetzbl. S. 143 – Im Namen der allerheiligsten und untheilbaren Dreieinigkeit.
 
-Beilagen - Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
+S. 299 ... Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820.
 
-Beilagen - Recht-Staat-Zweifel bzgl. Drittem Reich und dessen Rechtsfolger BRD
+S. 299 ... Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
 
-Es folgt ein einfacher Aktenvergleich zwischen Enkel und Großvater (beide Anti-NAZI).
+S. 299 ... Beilagen - Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
 
-Beilagen OFW Alexander Bittner a.D. über Folter in den JVAs 2024640
+S. 299 ... Beilagen - Recht-Staat-Zweifel bzgl. Drittem Reich und dessen Rechtsfolger BRD
 
-Beilagen Strafbefehl durch erwiesen korrupte Kathleen Rau, Richterin am Amtsgerichts Rendsburg643
+S. 299 ... Es folgt ein einfacher Aktenvergleich zwischen Enkel und Großvater (beide Anti-NAZI).
 
-Beilagen Vergleich ähnlicher Fall des Großvaters im Dritten Reich 1935 und 1944
+S. 299 ... Beilagen OFW Alexander Bittner a.D. über Folter in den JVAs 2024640
+
+S. 299 ... Beilagen Strafbefehl durch erwiesen korrupte Kathleen Rau, Richterin am Amtsgerichts Rendsburg643
+
+S. 299 ... Beilagen Vergleich ähnlicher Fall des Großvaters im Dritten Reich 1935 und 1944
