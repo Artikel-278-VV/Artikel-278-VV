@@ -58,57 +58,75 @@ S. 27 ... Das „Potsdamer Abkommen und andere Dokumente“ IV. Reparationen aus
 
 S. 29 ... Das „Potsdamer Abkommen und andere Dokumente“ Friedensvertrag wird hintertrieben S. 28
 
-S. 31 ... Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut
+S. 31 ... Das „Potsdamer Abkommen und andere Dokumente“ Besatzungsstatut S. 41
+
 
 - 2
 
-Das „Potsdamer Abkommen und andere Dokumente“ Schlußkommuniqué
+S. 39 ... Das „Potsdamer Abkommen und andere Dokumente“ Schlußkommuniqué S. 49
 
-S. 42 VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
+S. 42 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 21. September 1949 zum 30. Juni 1951 – Nr. 1 - 58
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
+S. 43 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 Besatzungsstatut (S. 1)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 2 bzgl. Begriff „das Bundesgebiet“
+S. 44 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 1 S. 2 (S. 2)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 7
+S. 46 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 2 S. 4 (S. 4) bzgl. Begriffe z.B. „das Bundesgebiet“
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 7 Anlage Besatzungsstatut für die BrD
+S. 47 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 3 S. 5 (S. 5)
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben.
+S. 48 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 4 S. 6 (S. 6)
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 16 GG.
+S. 49 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 5 S. 7 (S. 7) „Freiheit der Presse“
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 116 GG.
+S. 52 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 5 und Gesetz Nr. 6 S. 10 (S. 10)
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 139 GG (BefrG).
+S. 53 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 6 und Gesetz Nr. 7 S. 11 (S. 11)
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 146 GG.
+S. 55 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 23. September 1949 – No. 1 – Besatzungsstatut Gesetz Nr. 7 Anlage S. 13 oberhalb des BGBl. III (S. 1, vgl. Art. 139 GG) für die BrD
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Genehmigungsschreiben.
+S. 58 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Als Anlage zum Gesetz Nr. 7 S. 13, namentlich der Kern des Besatzungsstatuts. S. 2 (S. 1)
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Schreiben d. M-Gouverneure an PR über „Polizei-
+S. 61 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 16 GG.
+
+S. 62 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 116 GG.
+
+S. 63 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 139 GG (BefrG).
+
+S. 65 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Art. 146 GG.
+
+S. 66 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Genehmigungsschreiben.
+
+S. 69 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Schreiben d. M-Gouverneure an PR über „Polizei-
 Brief“
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. „Begleitschreiben“ zum „Besatzungsstatut“.
+S. 71 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. „Begleitschreiben“ zum „Besatzungsstatut“.
 
-Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Besatzungsstatut.
+S. 72 ... Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben. Besatzungsstatut.
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut S. 17 oberhalb des BGBl. III (S. 4, vgl. Art. 139 GG)
+S. 77 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut Gesetz Nr. 8 S. 18 (S. 5, vgl. Art. 139 GG)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut S. 53 (S. 14)
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 13 Besatzungsstatut
+S. 82 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 27. Oktober 1949 – No. 2 – Besatzungsstatut Gesetz Nr. 8 und Gesetz Nr. 9 S. 23 (S. 10)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 14.
+S. 86 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vvom 09. Dezember 1949 – No. 6 – Besatzungsstatut S. 53 (S. 14)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut S. 69 (S. 25)
+S. 87 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut Gesetz Nr. 13 S. 54 (S. 15) Besatzungsstatut
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 17.
+S. 92 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 09. Dezember 1949 – No. 6 – Besatzungsstatut Gesetz Nr. 14 S. 59 (S. 20)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut S. 121 (S. 32)
+S. 97 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut S. 69 (S. 25)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND Gesetz Nr. 22 Besatzungsstatut.
+S. 98 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 15 S. 70 (S. 25)
 
-VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 133 (S. 44)
+S. 100 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 15 und Gesetz Nr. 16 S. 72 (S. 27)
+
+S. 102 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 19. Dezember 1949 – No. 7 – Besatzungsstatut Gesetz Nr. 16 und Gesetz Nr. 17 S. 74 (S. 29)
+
+S. 105 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut S. 121 (S. 32)
+
+S. 106 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut Gesetz Nr. 22 S. 122 (S. 33) Besatzungsstatut.
+
+S. 117 ... VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND vom 7. März 1950 – No. 12 – Besatzungsstatut britische Verordnung Nr. 206 S. 133 (S. 44) „Verbotene Rechtsgeschäfte“
 
 - 3
 
