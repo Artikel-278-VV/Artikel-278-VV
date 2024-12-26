@@ -155,7 +155,33 @@ S. 117 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 10 vom 1. Juli 1946
 
 S. 117 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946
 
-S. 152 ... AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
+S. 137 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 166 (S. 64) Inhalt
+
+S. 138 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 167 (S. 65) Inhalt
+
+S. 139 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 168 (S. 66)
+
+S. 141 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 173 (S. 68)
+
+S. 142 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 174 (S. 69) Durchfürhungsverordnung Nr. 11 z. Währungsgesetz
+
+S. 143 ... VzA DER AHK IN DEUTSCHLAND vom 14. April 1950 – No. 15 – Besatzungsstatut S. 175 (S. 70) Durchfürhungsverordnung Nr. 12 z. Währungsgesetz
+
+S. 145 ... VzA DER AHK IN DEUTSCHLAND vom 25. Februar 1950 – No. 46 – Besatzungsstatut S. 262 – „Auflösen des [Bundes-]Staates Preußen“
+
+S. 146 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 23 vom 8. Dezember 1946 (beachte Art. 6, 7, 8, 9, 10 und Art. 178 BV)
+
+S. 147 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 10 vom 1. Juli 1946 bzgl. Befreiungsgesetz vom 05.03.1946 (BefrG, letzte F. v. 1993 By)
+
+S. 148 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 10 vom 1. Juli 1946 bzgl. 1. DVO über Meldepflicht zum Befreiungsgesetz vom 04.04.1946 S. 197 (DVO BefrG)
+
+S. 149 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 10 vom 1. Juli 1946 bzgl. 2. DVO über Meldepflicht zum Befreiungsgesetz vom 04.04.1946 (2. DVO z. BefrG) S. 198
+
+S. 150 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946 bzgl. 2. DVO über Meldepflicht zum Befreiungsgesetz vom 04.04.1946 (2. DVO z. BefrG)
+
+S. 151 ... Bayerisches Gesetz- u. Verordnungsblatt Nr. 24 vom 14. Dezember 1946 bzgl. Öffentlicher Dienst S. 50
+
+S. 152 ... AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949 Zeitliches Register
 
 AMTSBLATT DES KONTROLLRATS IN DEUTSCHLAND Nr. 1 vom 29.10.1945 Gesetz Nr. 1 1. a) bis o) „Aufhebung von Nazi-Gesetzen“
 
