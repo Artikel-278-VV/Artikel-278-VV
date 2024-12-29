@@ -95,7 +95,8 @@ S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert 
 # Systematische Sammlung des Bundesrechts
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8d/Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg/1280px-Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg)](https://www.reichsgesetzblatt.de/D/BGBl-1949/BGBl_III/index.htm)
 
-Sources: [Wikipedia](https://de.wikipedia.org/wiki/Systematische_Sammlung_des_Bundesrechts)
+Sources:
+[Wikipedia](https://de.wikipedia.org/wiki/Systematische_Sammlung_des_Bundesrechts)
 [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Anti-Staatsangehörigkeits Artikel 278 des Versailler Vertrags
