@@ -97,6 +97,7 @@ S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert 
 
 Sources:
 [Wikipedia](https://de.wikipedia.org/wiki/Systematische_Sammlung_des_Bundesrechts)
+
 [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Anti-Staatsangehörigkeits Artikel 278 des Versailler Vertrags
