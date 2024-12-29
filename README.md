@@ -101,6 +101,8 @@ Sources:
 
 [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
+[Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 29.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
 # Anti-Staatsangehörigkeits Artikel 278 des Versailler Vertrags
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/8/8e/Deutsches_Reichsgesetzblatt_1919_140_1087.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 # Anti-Friedens Artikel 292 des Versailler Vertrags
