@@ -105,7 +105,7 @@ Sources:
 
 [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 29.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-Jemand war so nett und hat bereits vorsorglich ein Backup auf [Wayback](https://web.archive.org/web/20241219135120/https://github.com/Artikel-278-VV/) angestoßen, vielen Dank dafür.
+Jemand war so nett und hat bereits vorsorglich ein [Backup auf Wayback](https://web.archive.org/web/20241219135120/https://github.com/Artikel-278-VV/) angestoßen, vielen Dank dafür.
 
 # Anti-Staatsangehörigkeits Artikel 278 des Versailler Vertrags
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/8/8e/Deutsches_Reichsgesetzblatt_1919_140_1087.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
