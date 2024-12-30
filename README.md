@@ -13,6 +13,8 @@ Weblinks zu den **Dokumenten** und zu [vwN hier auf Github](https://github.com/A
 * [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 29.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 
+Zur [Diskussion](https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/1):
+
 # Inhaltsverzeichnis (kurz S. 1)
 
 S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
