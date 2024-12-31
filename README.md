@@ -17,7 +17,7 @@ Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](http
 
 Zur [Diskussion](https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/1):
 
-# Inhaltsverzeichnis (kurz S. 1)
+# Inhaltsverzeichnis (SDBR, kurz S. 1 v. 24.12.2024)
 
 S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
 
@@ -51,25 +51,25 @@ S. 258 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. R
 
 S. 260 [257]           Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.             537
 
-S. 261 538                 Nr. 217. Erklärung des Kaisers Franz II. 1806.                [258]
+S. 261 538           Nr. 217. Erklärung des Kaisers Franz II. 1806.                [258]
 
-S. 263 540                                          Anhang.                                     [260]
+S. 263 540           Anhang.           [260]
 
-S. 264 [261]            Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.                541
+S. 264 [261]           Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.                541
 
-S. 272 [265]              Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.                     545
+S. 272 [265]           Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.                     545
 
-S. 284 552                                        Beilage.                                         [272]
+S. 284 552           Beilage.                                         [272]
 
-S. 285 [273]  Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 
+S. 285 [273]           Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 
 
-S. 289 540         Anhang  Die Grundgesetze des deutschen Bundes.            [260]
+S. 289 540           Anhang  Die Grundgesetze des deutschen Bundes.           [260]
 
-S. 290 [261]       Anhang  Nr. 218  Deutsche Bundes-Akte. 1815. Art. V. VI.        541
+S. 290 [261]           Anhang  Nr. 218  Deutsche Bundes-Akte. 1815. Art. V. VI.        541
 
-S. 294 [265]         Anhang  Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV.          545
+S. 294 [265]           Anhang  Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV.          545
 
-S. 301 552                                         Beilage.                                      [272]
+S. 301 552           Beilage.           [272]
 
 S. 302 [273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553
 
@@ -96,6 +96,83 @@ S. 457 Preuß. Gesetzbl. S. 143 – Im Namen der allerheiligsten und untheilbare
 S. 470 Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820
 
 S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
+
+[Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+# Inhaltsverzeichnis (Q-SDBR, kurz S. 1 v. 31.12.2024)
+
+S. 1   Haben oder Sein?
+
+S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
+
+S. 4   Artikel 9
+
+S. 4   Erklärung zur Aussetzung d. Wirksamkeit d. Vier-Mächte-Rechte u. -Verantwortlichkeiten
+
+S. 5   Vertrag v. 12.09.1990 über die „abschließende“ „Regelung“ in bezug auf Deutschland
+
+S. 21  Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
+
+S. 42  VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
+
+S. 58  Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben.
+
+...
+
+S. 232 AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
+
+S. 252 Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG)
+
+S. 265 Der völkerrechtswidrige Artikel 278 Versailler Vertrag!
+
+S. 267 Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913
+
+S. 270 „Die Verfassung des Deutschen Reichs“. Vom 11.08.1919
+
+S. 272 Gesetz über den Friedensschluß
+
+S. 280 Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
+
+S. 338 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
+
+S. 338 [257]           Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.           537
+
+S. 339 538           Nr. 217. Erklärung des Kaisers Franz II. 1806.           [258]
+
+S. 341 540           Anhang.           [260]
+
+S. 342 [261]           Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.           541
+
+S. 346 [265]           Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.           545
+
+S. 353 552           Beilage.           [272]
+
+S. 354 [273] Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 553	
+
+S. 357 Vorwort zum Verfassungsrecht des Deutschen Reiches von v. Rönne V
+
+S. 359 Einleitung zum Verfassungsrecht des Deutschen Reiches von v. Rönne I. S. 1
+
+S. 387 2. Abschnitt. Kompetenz der Reichsgewalt im Deutschen Reich von v. Rönne I. S. 40
+
+S. 405 Reichs- und Staatsangehörigkeit im Deutschen Reich von v. Rönne IV. S. 102
+
+S. 423 Schutze des Deutschen Reiches und Bundesverfassung von v. Rönne XI. S. 147
+
+S. 432 Das Reichspräsidium. Organe d. Reichsgewalt d. Deutschen Reich von v. Rönne S. 156
+
+S. 439 Verfassungsmäßige Rechte der Reichsangehörigen von v. Rönne S. 171
+
+S. 442 Geschäftsordnung des Reichstages. von v. Rönne S. 177
+
+S. 485 Reichsämter und Reichsbeamte des Deutschen Reiches von v. Rönne S. 200
+
+S. 509 Preuß. Gesetzbl. S. 143 – Im Namen der allerheiligsten und untheilbaren Dreieinigkeit.
+
+S. 522 Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820
+
+S. 538 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
+
 
 # Systematische Sammlung des Bundesrechts
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8d/Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg/1280px-Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg)](https://www.reichsgesetzblatt.de/D/BGBl-1949/BGBl_III/index.htm)
