@@ -173,6 +173,14 @@ S. 522 Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820
 
 S. 538 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
 
+S. 594 Gesamt-Fazit
+
+S. 643 Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
+
+S. 645 Corona-Maßnahmen-Beschluss vom 28.07.2022 - 12 Qs 34/22
+
+S. 656 OFW Alexander Bittner a.D. über Folter in den JVAs 2024
+
 [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 29.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Systematische Sammlung des Bundesrechts
