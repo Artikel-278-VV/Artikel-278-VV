@@ -14,6 +14,7 @@ Weblinks zu den **Dokumenten** und zu [vwN hier auf Github](https://github.com/A
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 
 Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](https://odysee.com/@MatrixHacker:f/schmid:8), die jeder Deutsche mindestens einmal im Leben gehört haben muß. ([Backup von Anonym](https://odysee.com/Schmid:3))
+
 Zur [Diskussion](https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/1):
 
 # Inhaltsverzeichnis (kurz S. 1)
