@@ -115,9 +115,11 @@ S. 21  Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
 
 S. 42  VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
 
-S. 58  Das militärische Grundgesetz für die Bundesrepublik innerhalb des Geltungsbereichs desselben.
+S. 58  Militärisches Grundgesetz f. d. Bundesrepublik innerhalb d. Geltungsbereichs desselben
 
-...
+S. 76  Bundesgesetzblatt Teil III (DDR Sonderdruck) als Sammlung des Bundesrechts
+
+S. 100 GG Kommentar zum Grundgesetz i.d. 14. Auflage aus 2018
 
 S. 232 AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
 
