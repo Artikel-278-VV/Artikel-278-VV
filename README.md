@@ -49,25 +49,25 @@ S. 200 Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
 
 S. 258 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
 
-S. 260 [257]           Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.             537
+S. 260 [257]           Nr. 216. Erklärung der Rheinbundes-Staaten. 1806.           537
 
-S. 261 538           Nr. 217. Erklärung des Kaisers Franz II. 1806.                [258]
+S. 261 538           Nr. 217. Erklärung des Kaisers Franz II. 1806.           [258]
 
 S. 263 540           Anhang.           [260]
 
-S. 264 [261]           Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.                541
+S. 264 [261]           Nr. 218. Deutsche Bundes-Akte. 1815. Art.V. VI.           541
 
-S. 272 [265]           Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.                     545
+S. 272 [265]           Nr. 219. Wiener Schluß-Akte. 1820. Art. I-IV.           545
 
-S. 284 552           Beilage.                                         [272]
+S. 284 552           Beilage.           [272]
 
 S. 285 [273]           Nr. 220. Der deutsche Reichstag in seiner Zusammensetzung im Jahre 1792. 
 
 S. 289 540           Anhang  Die Grundgesetze des deutschen Bundes.           [260]
 
-S. 290 [261]           Anhang  Nr. 218  Deutsche Bundes-Akte. 1815. Art. V. VI.        541
+S. 290 [261]           Anhang  Nr. 218  Deutsche Bundes-Akte. 1815. Art. V. VI.           541
 
-S. 294 [265]           Anhang  Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV.          545
+S. 294 [265]           Anhang  Nr. 219. Wiener Schluß-Akte. 1820. Art. I–IV.           545
 
 S. 301 552           Beilage.           [272]
 
