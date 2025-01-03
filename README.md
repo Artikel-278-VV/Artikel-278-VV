@@ -99,41 +99,37 @@ S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert 
 
 [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-# Inhaltsverzeichnis (Q-SDBR, kurz S. 1 v. 31.12.2024)
+# Inhaltsverzeichnis (Q-SDBR, kurz S. 1 v. 03.01.2025)
 
 S. 1   Haben oder Sein?
 
-S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
+S. 2   Vertrag v. 12.09.1990 über die „abschließende“ „Regelung“ in bezug auf Deutschland
 
-S. 4   Artikel 9
+S. 18   Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
 
-S. 4   Erklärung zur Aussetzung d. Wirksamkeit d. Vier-Mächte-Rechte u. -Verantwortlichkeiten
+S. 39   VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
 
-S. 5   Vertrag v. 12.09.1990 über die „abschließende“ „Regelung“ in bezug auf Deutschland
+S. 55  Militärisches Grundgesetz f. d. Bundesrepublik innerhalb d. Geltungsbereichs desselben
 
-S. 21  Das „Potsdamer Abkommen und andere Dokumente“ v. 1950
+S. 73  Bundesgesetzblatt Teil III (DDR Sonderdruck) als Sammlung des Bundesrechts
 
-S. 42  VERZEICHNIS ZUM AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND
+S. 98 GG Kommentar zum Grundgesetz i.d. 14. Auflage aus 2018
 
-S. 58  Militärisches Grundgesetz f. d. Bundesrepublik innerhalb d. Geltungsbereichs desselben
+S. 141 Handreichung zum Umgang mit schwierigen Verfahrensbeteiligten (sog. Reichsbürger)
 
-S. 76  Bundesgesetzblatt Teil III (DDR Sonderdruck) als Sammlung des Bundesrechts
+S. 242 AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
 
-S. 100 GG Kommentar zum Grundgesetz i.d. 14. Auflage aus 2018
+S. 262 Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG)
 
-S. 232 AMTSBLATT DER HOHEN KOMMISSION IN DEUTSCHLAND (Nr. 1 - 7) v. 1949
+S. 275 Der völkerrechtswidrige Artikel 278 Versailler Vertrag!
 
-S. 252 Kommentar zum Reich- UND Staatsangehörigkeitsgesetz (RuStAG)
+S. 277 Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913
 
-S. 265 Der völkerrechtswidrige Artikel 278 Versailler Vertrag!
+S. 280 „Die Verfassung des Deutschen Reichs“. Vom 11.08.1919
 
-S. 267 Kommentar zum § 37 Reich- UND Staatsangehörigkeitsgesetz vom 22. Juli 1913
+S. 282 Gesetz über den Friedensschluß
 
-S. 270 „Die Verfassung des Deutschen Reichs“. Vom 11.08.1919
-
-S. 272 Gesetz über den Friedensschluß
-
-S. 280 Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
+S. 290 Verfassungs-Kontinuität und Rechtsnachfolge (Bundesrecht)
 
 S. 338 Nr. 216. (187). Erklärung d. Rheinbundes-Staaten ü. i. Austritt a. d. Reiche. – 1806.
 
