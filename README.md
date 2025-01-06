@@ -7,6 +7,7 @@ You can click the Preview link to take a look at your changes.
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
 * [Aufsatz nebst Anlagen, Beilagen und eine OVG Beschwerde](https://drive.proton.me/urls/CVVMDDE9YW#ZE7PDaXtEnlZ)
+* [Expertise zum 2+4 Vertrag (Wende) v. 17.07.2023 idF v. 04.09.2023 ](https://drive.proton.me/urls/Q2YSCQ706R#MkJJnSqMz1TO)
 * [Waffe-StAG-Video](https://drive.proton.me/urls/S0H5J89YNM#k0MFtlrKjQQC)
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 24.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
