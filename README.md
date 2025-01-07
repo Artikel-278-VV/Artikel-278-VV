@@ -99,7 +99,7 @@ S. 470 Preußisches Gesetzblatt Nr. 12 (No. 612) S. 113 v. 24.06.1820
 
 S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert Sacco.) u.a.
 
-[Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 20.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 24.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Inhaltsverzeichnis (Q-SDBR, kurz S. 1 v. 05.01.2025)
 
@@ -181,7 +181,7 @@ S. 693 Corona-Maßnahmen-Beschluss vom 28.07.2022 - 12 Qs 34/22
 
 S. 704 OFW Alexander Bittner a.D. über Folter in den JVAs 2024
 
-[Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 29.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 05.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Systematische Sammlung des Bundesrechts
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8d/Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg/1280px-Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg)](https://www.reichsgesetzblatt.de/D/BGBl-1949/BGBl_III/index.htm)
