@@ -12,7 +12,7 @@ Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Githu
 * [Waffe-StAG-Video](https://drive.proton.me/urls/S0H5J89YNM#k0MFtlrKjQQC)
 * [Historie der „deutschen Staatsangehörigkeit“](https://drive.proton.me/urls/4CARPZNE9G#zushQtbiqxHA)
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 24.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-* [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 07.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+* [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 08.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 
 Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](https://odysee.com/@MatrixHacker:f/schmid:8), die jeder Deutsche mindestens einmal im Leben gehört haben muß. ([Backup von Anonym](https://odysee.com/Schmid:3))
@@ -181,7 +181,7 @@ S. 693 Corona-Maßnahmen-Beschluss vom 28.07.2022 - 12 Qs 34/22
 
 S. 704 OFW Alexander Bittner a.D. über Folter in den JVAs 2024
 
-[Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 07.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 08.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 # Systematische Sammlung des Bundesrechts
 [![alt text](https://upload.wikimedia.org/wikipedia/commons/thumb/8/8d/Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg/1280px-Systematische_Sammlung_%28diverse_B%C3%A4nde%29.jpeg)](https://www.reichsgesetzblatt.de/D/BGBl-1949/BGBl_III/index.htm)
