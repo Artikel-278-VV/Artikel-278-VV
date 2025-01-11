@@ -3,6 +3,8 @@ Artikel-278-VV/Artikel-278-VV is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 
+<video src="https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/deutsch2.mp4" controls="controls" style="max-width: 730px;">
+</video>
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
