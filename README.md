@@ -6,7 +6,7 @@ You can click the Preview link to take a look at your changes.
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
-* [Waffe-StAG und NAZI Staatsbürger in der BrD - Sendung mit der Maus für Erwachsene[(https://odysee.com/@MatrixHacker:f/deutsch2:e)
+* [Waffe-StAG und NAZI Staatsbürger in der BrD - Sendung mit der Maus für Erwachsene](https://odysee.com/@MatrixHacker:f/deutsch2:e)
 * [Aufsatz nebst Anlagen, Beilagen und eine OVG Beschwerde](https://drive.proton.me/urls/CVVMDDE9YW#ZE7PDaXtEnlZ)
 * [Expertise zum 2+4 Vertrag (Wende) v. 17.07.2023 idF v. 04.09.2023 ](https://drive.proton.me/urls/Q2YSCQ706R#MkJJnSqMz1TO)
 * [Offener Brief an Steinmeier und Haldenwang (informiert) v. 08.05.2024](https://drive.proton.me/urls/P3YW1S2WH0#I63zoLMCUs43)
