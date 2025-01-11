@@ -3,10 +3,6 @@ Artikel-278-VV/Artikel-278-VV is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 
-
-https://github.com/user-attachments/assets/51a1c58a-8a1d-4147-b9e9-30049d5e174a
-
-
 <video src="https://github.com/user-attachments/assets/51a1c58a-8a1d-4147-b9e9-30049d5e174a" controls="controls" style="max-width: 730px;"></video>
 
 # Artikel 278 Versailler Vertrag
