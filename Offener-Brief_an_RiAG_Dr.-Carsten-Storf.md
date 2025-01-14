@@ -2,10 +2,11 @@
 Artikel-278-VV/Artikel-278-VV is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-# 4Q+ EO13903... Law No. 1, 2 u. 7 Anlage Art. 139 GG iVm. Art. 123 I GG u. Art. 178 II WRV u. Art. 68 BVerf. iVm. Art. 111 PreußV. u. GBl. 1851 S. 451
-Offener Brief an AG Rendsburg - Dr. Storf
+## 4Q+ EO13903... Law No. 1, 2 u. 7 Anlage Art. 139 GG iVm. Art. 123 I GG u. Art. 178 II WRV u. Art. 68 BVerf. iVm. Art. 111 PreußV. u. GBl. 1851 S. 451
+# Offener Brief an AG Rendsburg - Dr. Storf
 
-cu IG-Report Comey-ED !Corney !0bama - https://8kun.top/qresearch/res/7473549.html#7473739  76765 78211 81765 70
+cu IG-Report Comey-ED !Corney !0bama - https://8kun.top/qresearch/res/7473549.html#7473739  **76765 78211 81765 70**
+Главная военная прокуратура, 119160, г. Москва, пер. Хользунова, д.14 - https://www.gvp.gov.ru/gvp/contacts **Az. 82/1-4201-16** v. 17.08.2016
 
 <video src="https://github.com/user-attachments/assets/51a1c58a-8a1d-4147-b9e9-30049d5e174a" controls="controls" style="max-width: 730px;"></video>
 
