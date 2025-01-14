@@ -78,6 +78,7 @@ post scriptum
 Justiziables erfordert n. StPO nix weiter als die Kenntnis um zwV zu gelangen, sofern nicht unterlassen zu wollen.
 
 <video src="https://github.com/user-attachments/assets/08adf02e-49d9-48db-bf99-e3de481e83b3" controls="controls" style="max-width: 730px;"></video>
+<video src="https://github.com/user-attachments/assets/d542436f-34cf-4723-b2db-5b70cf8d1192" controls="controls" style="max-width: 730px;"></video>
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
