@@ -98,27 +98,27 @@ Justiziables erfordert n. StPO nix weiter als die Kenntnis um zwV zu gelangen, s
 
 # zusätzliche Adressaten in TO
 
-verwaltung@ag-rendsburg.land.sh.de
+verwaltung@ag-rendsburg.landsh.de
 
 ...
 
 # zusätzliche Adressaten in CC
 
-birka.knuth@ag-rendsburg.land.sh.de stVDir  geboren am 30.08.1969 - grob ungeeignet
+birka.knuth@ag-rendsburg.landsh.de stVDir  geboren am 30.08.1969 - grob ungeeignet
 
-heike.waller@ag-rendsburg.land.sh.de sorry
+heike.waller@ag-rendsburg.landsh.de sorry
 
-torbjoern.stryck@ag-rendsburg.land.sh.de
+torbjoern.stryck@ag-rendsburg.landsh.de
 
-silja.greve@ag-rendsburg.land.sh.de sorry und lg an den RiR a.D.
+silja.greve@ag-rendsburg.landsh.de sorry und lg an den RiR a.D.
 
-sebastian.klausch@ag-rendsburg.land.sh.de
+sebastian.klausch@ag-rendsburg.landsh.de
 
-helen.kubicki-mohr@ag-rendsburg.land.sh.de informieren Sie bitte Ihren Vater
+helen.kubicki-mohr@ag-rendsburg.landsh.de informieren Sie bitte Ihren Vater
 
-kathleen.rau@ag-rendsburg.land.sh.de geboren am 08.10.1979 - grob ungeeignet
+kathleen.rau@ag-rendsburg.landsh.de geboren am 08.10.1979 - grob ungeeignet
 
-mareike.blank@ag-rendsburg.land.sh.de ??? RiAG???!!! Nicht GS?!
+mareike.blank@ag-rendsburg.landsh.de ??? RiAG???!!! Nicht GS?!
 
 verwaltung@lg-kiel.landsh.de @all
 
