@@ -151,7 +151,7 @@ sebastian.klausch@ag-rendsburg.landsh.de
 
 helen.kubicki-mohr@ag-rendsburg.landsh.de informieren Sie bitte Ihren Vater
 
-kathleen.rau@ag-rendsburg.landsh.de geboren am 08.10.1979 - grob ungeeignet (7 " _Probejahre_ "
+kathleen.rau@ag-rendsburg.landsh.de geboren am 08.10.1979 - grob ungeeignet (7 " _Probejahre_ ")
 
 mareike.blank@ag-rendsburg.landsh.de ??? RiAG???!!! Nicht GS?!
 
