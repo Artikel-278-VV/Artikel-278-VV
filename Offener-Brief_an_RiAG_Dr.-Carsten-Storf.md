@@ -6,6 +6,14 @@ You can click the Preview link to take a look at your changes.
 # Offener Brief an [AG Rendsburg](https://www.schleswig-holstein.de/DE/justiz/gerichte-und-justizbehoerden/AmtsgerichteSH/AGRendsburg/AGRendsburg_node.html) - Dr. Storf (w. aufs. RiAG, kein Direktor, N.N.)
 carsten.storf@ag-rendsburg.landsh.de
 
+Königstraße **17**, 24768 Rendsburg
+
+E-Mail: verwaltung@ag-rendsburg.landsh.de 
+
+Telefon: +49 4331 139-0
+
+Fax: +49 4331 139-200
+
 cu IG-Report Comey-ED !Corney !0bama - https://8kun.top/qresearch/res/7473549.html#7473739  **76765 78211 81765 70**
 
 Главная военная прокуратура, 119160, г. Москва, пер. Хользунова, д.14 - https://www.gvp.gov.ru/gvp/contacts **Az. 82/1-4201-16** v. 17.08.2016
