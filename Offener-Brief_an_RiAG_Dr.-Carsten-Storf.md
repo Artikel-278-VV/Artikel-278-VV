@@ -193,16 +193,25 @@ cornelia.schoenfelder@olg.justiz.sachsen.de Vize
 
 ## zusätzliche Adressaten in CC für weitere Justizopfer (unbeteiligte Dritte uvw Justizunfälle)
 
-poststelle@sta-la.bayern
+poststelle@sta-la.bayern @all
+
+verena.albrecht@ag-eg.bayern.de
+
+wolfgang.bartel@ag-eg.bayern.de
+
+pp-np.passau.kpi.k5@polizei.bayern.de
+
+landrat@rottal-inn.de
 
 info@rbui.de
 
-ingrid.wall@rbui.de
+diezmann.fa-eg@finanzamt.bayern.de
+
+pi.passau@polizei.bayern.de
 
 J.Asanger@t-online.de
 
 info@br.de
-
 
 
 
