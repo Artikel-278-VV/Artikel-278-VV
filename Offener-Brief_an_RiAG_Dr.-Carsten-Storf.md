@@ -120,6 +120,20 @@ kathleen.rau@ag-rendsburg.land.sh.de geboren am 08.10.1979 - grob ungeeignet
 
 mareike.blank@ag-rendsburg.land.sh.de ??? RiAG???!!! Nicht GS?!
 
+verwaltung@lg-kiel.landsh.de
+
+susanne.bracker@lg-kiel.landsh.de
+
+carl-sebastian.zoellner@lg-kiel.landsh.de Staatsrechtler
+
+verwaltung@olg.landsh.de
+
+dirk.bahrenfuss@olg.landsh.de
+
+martina.schall@olg.landsh.de
+
+poststelle@jumi.landsh.de
+
 ...
 
 
