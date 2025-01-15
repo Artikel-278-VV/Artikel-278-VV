@@ -104,7 +104,7 @@ verwaltung@ag-rendsburg.land.sh.de
 
 # zusätzliche Adressaten in CC
 
-birka.knuth@ag-rendsburg.land.sh.de stVDir
+birka.knuth@ag-rendsburg.land.sh.de stVDir  geboren am 30.08.1969 - grob ungeeignet
 
 heike.waller@ag-rendsburg.land.sh.de sorry
 
@@ -116,7 +116,7 @@ sebastian.klausch@ag-rendsburg.land.sh.de
 
 helen.kubicki-mohr@ag-rendsburg.land.sh.de informieren Sie bitte Ihren Vater
 
-kathleen.rau@ag-rendsburg.land.sh.de
+kathleen.rau@ag-rendsburg.land.sh.de geboren am 08.10.1979 - grob ungeeignet
 
 mareike.blank@ag-rendsburg.land.sh.de ??? RiAG???!!! Nicht GS?!
 
