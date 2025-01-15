@@ -14,7 +14,7 @@ Telefon: +49 4331 139-0
 
 Fax: +49 4331 139-200
 
-### unbegingte Beobachtung der Art. 278 VV, Art. 110 WRV, Art. 16 I GG (RGBl. I 1933 S. 480, RGBl. I 1934 S. 85), Art. 116 I GG (RGBl. I 1935 S. 1146 u. S. 1333)
+### unbegingte Beobachtung der Art. 278 VV, Art. 110 WRV, Art. 16 I GG (RGBl. I 1933 S. 480, RGBl. I 1934 S. 85) ODER Art. 116 I GG (RGBl. I 1935 S. 1146 u. S. 1333)
 
 cu IG-Report Comey-ED !Corney !0bama - https://8kun.top/qresearch/res/7473549.html#7473739  **76765 78211 81765 70**
 
