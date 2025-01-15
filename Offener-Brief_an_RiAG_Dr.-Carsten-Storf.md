@@ -154,7 +154,7 @@ cornelia.schoenfelder@olg.justiz.sachsen.de Vize
 
 ...
 
-## zusätzliche Adressaten in CC für (weitere) Dritte Justizopfer )Justizunfälle)
+## zusätzliche Adressaten in CC für (weitere) Dritte Justizopfer (Justizunfälle)
 
 poststelle@sta-la.bayern
 
