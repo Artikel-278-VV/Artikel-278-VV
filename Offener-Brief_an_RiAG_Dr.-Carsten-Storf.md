@@ -154,7 +154,7 @@ cornelia.schoenfelder@olg.justiz.sachsen.de Vize
 
 ...
 
-# 4Dritte Justizopfer
+## zusätzliche Adressaten in CC für (weitere) Dritte Justizopfer )Justizunfälle)
 
 poststelle@sta-la.bayern
 
@@ -173,6 +173,7 @@ usarmy.stuttgart.3-mp-gp.list.stuttgart-cid@mail.mil
 usarmy.wiesbaden.3-mp-gp.list.wiesbaden-cid@mail.mil
 
 usarmy.ansbach.3-mp-gp.list.ansbach-cid@mail.mil
+
 
 
 # Artikel 278 Versailler Vertrag
