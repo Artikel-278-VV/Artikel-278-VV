@@ -111,6 +111,8 @@ stephan.harbarth@bundesverfassungsgericht.de
 
 poststelle@bmj.bund.de ohne Dr. Marco Buschmann
 
+dr.marco.buschmann@proton.me
+
 poststelle@bgh.bund.de
 
 poststelle@gba.bund.de (bitte z.Hd. ehrenwerten Jens Rommel)
