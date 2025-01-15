@@ -109,6 +109,10 @@ ministry@mid.ru
 
 dip@mid.ru
 
+info@miami.diplo.de
+
+NPIC@state.gov
+
 ...
 
 # zusätzliche Adressaten in CC
