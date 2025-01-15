@@ -96,6 +96,34 @@ Justiziables erfordert n. StPO nix weiter als die Kenntnis um zwV zu gelangen, s
 <video src="https://github.com/user-attachments/assets/08adf02e-49d9-48db-bf99-e3de481e83b3" controls="controls" style="max-width: 730px;"></video>
 <video src="https://github.com/user-attachments/assets/d542436f-34cf-4723-b2db-5b70cf8d1192" controls="controls" style="max-width: 730px;"></video>
 
+# zusätzliche Adressaten in TO
+
+verwaltung@ag-rendsburg.land.sh.de
+
+...
+
+# zusätzliche Adressaten in CC
+
+birka.knuth@ag-rendsburg.land.sh.de stVDir
+
+heike.waller@ag-rendsburg.land.sh.de sorry
+
+torbjoern.stryck@ag-rendsburg.land.sh.de
+
+silja.greve@ag-rendsburg.land.sh.de sorry und lg an den RiR a.D.
+
+sebastian.klausch@ag-rendsburg.land.sh.de
+
+helen.kubicki-mohr@ag-rendsburg.land.sh.de
+
+kathleen.rau@ag-rendsburg.land.sh.de
+
+mareike.blank@ag-rendsburg.land.sh.de ??? RiAG???!!! Nicht GS?!
+
+...
+
+
+
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
 * [Waffe-StAG und NAZI Staatsbürger in der BrD - Sendung mit der Maus für Erwachsene](https://odysee.com/@MatrixHacker:f/deutsch2:e)
