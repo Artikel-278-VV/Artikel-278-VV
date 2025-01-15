@@ -124,7 +124,7 @@ verwaltung@lg-kiel.landsh.de @all
 
 susanne.bracker@lg-kiel.landsh.de Präsident
 
-carl-sebastian.zoellner@lg-kiel.landsh.de Vize Staatsrechtler gebohren am 28.11.1977
+carl-sebastian.zoellner@lg-kiel.landsh.de Vize Staatsrechtler gebohren am 28.11.1977 (RC D-1890 ASM? Nachfolger ASM Dir RiAG Rine Peters)
 
 verwaltung@olg.landsh.de @all
 
@@ -136,9 +136,9 @@ poststelle@jumi.landsh.de @all
 
 verwaltung@aggrm.justiz.sachsen.de @all
 
-katja.kohlschmid@aggrm.justiz.sachsen.de Dir (RC D-1880)
+katja.kohlschmid@aggrm.justiz.sachsen.de Dir (RC D-1880 ASM)
 
-mathias.zschiebsch@aggrm.justiz.sachsen.de
+mathias.zschiebsch@aggrm.justiz.sachsen.de stVDir
 
 verwaltung@agl.justiz.sachsen.de @ all
 
