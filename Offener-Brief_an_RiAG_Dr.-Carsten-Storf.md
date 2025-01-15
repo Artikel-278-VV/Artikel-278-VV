@@ -105,6 +105,28 @@ Du mußt gemäß meinen Richtlinien und denen des JUMI/ULD/BSI - _was identisch 
 
 verwaltung@ag-rendsburg.landsh.de
 
+bverfg@bundesverfassungsgericht.de
+
+stephan.harbarth@bundesverfassungsgericht.de
+
+poststelle@bmj.bund.de ohne Dr. Marco Buschmann
+
+poststelle@bgh.bund.de
+
+poststelle@gba.bund.de (bitte z.Hd. ehrenwerten Jens Rommel)
+
+bundesfinanzhof@bfh.bund.de
+
+pressesprecher@bfh.bund.de  PSpr Dr. Volker Pfirrmann
+
+post@bverwg.bund.de
+
+vbi@bmi.bund.de
+
+tdgnordhauptgeschaefststelle@bundeswehr.org
+
+tdgsuedhauptgeschaefststelle@bundeswehr.org
+
 ministry@mid.ru
 
 dip@mid.ru
