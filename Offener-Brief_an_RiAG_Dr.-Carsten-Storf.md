@@ -85,7 +85,7 @@ Ihr hättet irgendwann selbst prüfen müssen statt normopathisch oder verängst
 **Ich erwarte Antwort Carsten.**
 
 Unter folgendem Weblink ist dieser Brief und alles was Du brauchst und auch ohne Dich Verwendung findet zum sicheren Download bereitgestellt:
-https://github.com/Artikel-278-VV
+https://github.com/Artikel-278-VV - https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/Offener-Brief_an_RiAG_Dr.-Carsten-Storf.md
 
 Marco
 
