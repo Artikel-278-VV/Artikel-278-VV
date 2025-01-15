@@ -96,7 +96,7 @@ Justiziables erfordert n. StPO nix weiter als die Kenntnis um zwV zu gelangen, s
 
 post post scriptum
 
-Du mußt gemäß meinen Richtlinien und denen des JUMI bei der ZIT einen Sicherheitsvorfall melden.
+Du mußt gemäß meinen Richtlinien und denen des JUMI/ULD/BSI - _was identisch erscheinen mag_ - bei der ZIT einen Sicherheitsvorfall melden.
 
 <video src="https://github.com/user-attachments/assets/08adf02e-49d9-48db-bf99-e3de481e83b3" controls="controls" style="max-width: 730px;"></video>
 <video src="https://github.com/user-attachments/assets/d542436f-34cf-4723-b2db-5b70cf8d1192" controls="controls" style="max-width: 730px;"></video>
