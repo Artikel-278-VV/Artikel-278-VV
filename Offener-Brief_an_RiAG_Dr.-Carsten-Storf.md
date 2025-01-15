@@ -120,19 +120,19 @@ kathleen.rau@ag-rendsburg.land.sh.de geboren am 08.10.1979 - grob ungeeignet
 
 mareike.blank@ag-rendsburg.land.sh.de ??? RiAG???!!! Nicht GS?!
 
-verwaltung@lg-kiel.landsh.de
+verwaltung@lg-kiel.landsh.de @all
 
-susanne.bracker@lg-kiel.landsh.de
+susanne.bracker@lg-kiel.landsh.de Präsident
 
-carl-sebastian.zoellner@lg-kiel.landsh.de Staatsrechtler
+carl-sebastian.zoellner@lg-kiel.landsh.de Vize Staatsrechtler
 
-verwaltung@olg.landsh.de
+verwaltung@olg.landsh.de @all
 
-dirk.bahrenfuss@olg.landsh.de
+dirk.bahrenfuss@olg.landsh.de Präsident
 
-martina.schall@olg.landsh.de
+martina.schall@olg.landsh.de Vize
 
-poststelle@jumi.landsh.de
+poststelle@jumi.landsh.de @all
 
 ...
 
