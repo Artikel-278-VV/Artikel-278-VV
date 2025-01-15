@@ -134,6 +134,24 @@ martina.schall@olg.landsh.de Vize
 
 poststelle@jumi.landsh.de @all
 
+verwaltung@aggrm.justiz.sachsen.de @all
+
+katja.kohlschmid@aggrm.justiz.sachsen.de Dir (RC D-1880)
+
+mathias.zschiebsch@aggrm.justiz.sachsen.de
+
+verwaltung@agl.justiz.sachsen.de @ all
+
+michael.wolting@agl.justiz.sachsen.de Präsident (Großgericht = Präsidialgericht)
+
+stefanie.dammer@agl.justiz.sachsen.de Vize
+
+verwaltung@olg.justiz.sachsen.de
+
+leon.ross@olg.justiz.sachsen.de Präsident
+
+cornelia.schoenfelder@olg.justiz.sachsen.de Vize
+
 ...
 
 
