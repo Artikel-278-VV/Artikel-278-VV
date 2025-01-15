@@ -100,6 +100,10 @@ Justiziables erfordert n. StPO nix weiter als die Kenntnis um zwV zu gelangen, s
 
 verwaltung@ag-rendsburg.landsh.de
 
+ministry@mid.ru
+
+dip@mid.ru
+
 ...
 
 # zusätzliche Adressaten in CC
