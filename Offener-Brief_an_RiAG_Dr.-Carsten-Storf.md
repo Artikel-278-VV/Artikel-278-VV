@@ -124,7 +124,7 @@ verwaltung@lg-kiel.landsh.de @all
 
 susanne.bracker@lg-kiel.landsh.de Präsident
 
-carl-sebastian.zoellner@lg-kiel.landsh.de Vize Staatsrechtler
+carl-sebastian.zoellner@lg-kiel.landsh.de Vize Staatsrechtler gebohren am 28.11.1977
 
 verwaltung@olg.landsh.de @all
 
