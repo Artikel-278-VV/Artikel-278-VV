@@ -3,7 +3,7 @@ Artikel-278-VV/Artikel-278-VV is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 ## 4Q+ EO13903... Law No. 1, 2 u. 7 Anlage Art. 139 GG iVm. Art. 123 I GG u. Art. 178 II WRV u. Art. 68 BVerf. iVm. Art. 111 PreußV. u. GBl. 1851 S. 451
-# Offener Brief an AG Rendsburg - Dr. Storf (w. aufs. RiAG, kein Direktor, N.N.)
+# Offener Brief an [AG Rendsburg](https://www.schleswig-holstein.de/DE/justiz/gerichte-und-justizbehoerden/AmtsgerichteSH/AGRendsburg/AGRendsburg_node.html) - Dr. Storf (w. aufs. RiAG, kein Direktor, N.N.)
 carsten.storf@ag-rendsburg.landsh.de
 
 cu IG-Report Comey-ED !Corney !0bama - https://8kun.top/qresearch/res/7473549.html#7473739  **76765 78211 81765 70**
