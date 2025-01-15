@@ -181,7 +181,7 @@ S. 486 Buch des Gesetzes für das Preußische Volk. Held v. 1849 (Verlag Albert 
 
 [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 24.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
-# Inhaltsverzeichnis (Q-SDBR, kurz S. 1 v. 05.01.2025)
+# Inhaltsverzeichnis (Q-SDBR, kurz S. 1 v. 08.01.2025)
 
 S. 1   Haben oder Sein?
 
