@@ -114,7 +114,7 @@ silja.greve@ag-rendsburg.land.sh.de sorry und lg an den RiR a.D.
 
 sebastian.klausch@ag-rendsburg.land.sh.de
 
-helen.kubicki-mohr@ag-rendsburg.land.sh.de
+helen.kubicki-mohr@ag-rendsburg.land.sh.de informieren Sie bitte Ihren Vater
 
 kathleen.rau@ag-rendsburg.land.sh.de
 
