@@ -299,7 +299,7 @@ verwaltung@gensta.justiz.sachsen.de
 
 verwaltung@stal.justiz.sachsen.de
 
-tamara.winkler@stal.justiz.sachsen.de
+tamara.winkler@stal.justiz.sachsen.de  (sieht im 10.02.2023 keine Hausdurchsuchung, weshalb Befehl unnötig erscheinen muß, denn es gab keinen)
 
 gensta-nmb@justiz.sachsen-anhalt.de
 
@@ -318,6 +318,27 @@ h.spehr@stadtwerke-rendsburg.de
 info@stadtwerke-rendsburg.de
 
 lka532@polizei.berlin.de
+
+philipp.boecker@ovg.berlin.de
+
+hans-joachim.hessler@olg-m.bayern.de
+
+rainer.hanf@olg.landsh.de
+
+verwaltung@ovg.berlin.de
+
+Markus.Rau@ovg.berlin.de
+
+barbara.dauner-lieb@ovg.nrw.de
+
+lars.brocker@ovg.jm.rlp.de
+
+ute.telge@ag-rendsburg.landsh.de
+
+Svenja.Bodenstein@ag-rendsburg.landsh.de
+
+frank-walter.steinmeier@bpra.bund.de
+
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
