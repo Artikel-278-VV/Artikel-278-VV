@@ -112,7 +112,7 @@ pascal.schmidt@ag-rendsburg.landsh.de (Tipprunde)
 
 <video src="https://github.com/user-attachments/assets/76cc0559-c5a8-429a-8661-2c4580e30165" controls="controls" style="max-width: 730px;"></video>
 
-Wohnungssturm durch 1. Leipziger Einsatzzug Modes (ca. 25-30 SiPo), Ortspolizei, Straßensperrungen, Heli, Nachbareingänge und Hinterhöfe, wegen 760,- € Raub bzgl. zweier offenkundig korrupter Strafbefehle (verkürzter Prozess staat "fairem Verfahren" n. Art. 6 MRK) und ohne Durchsuchungsbefehl, ohne zu wissen wer in der Wohnung ist oder nicht, bis auf die Tochter, einen Tag vor dem 18. am 10.02.2023 (korruption mit Dr. Langenfeld D-1880, RA Wöhlermann Pre. D-1880 und RA Horbas).
+**Wohnungssturm durch 1. Leipziger Einsatzzug Modes** (ca. 25-30 SiPo), zuzüglich Ortspolizei, Straßensperrungen, Heli, Nachbareingänge und Hinterhöfe (ca. 50), wegen 760,- € Raub bzgl. zweier offenkundig korrupter Strafbefehle (verkürzter Prozess staat " _fairem Verfahren_ " n. **Art. 6 MRK**) und ohne Durchsuchungsbefehl, ohne zu wissen wer in der Wohnung ist oder nicht, bis auf die Tochter, einen Tag vor dem 18. am 10.02.2023 (korruption mit Dr. Langenfeld D-1880, RA Wöhlermann Pre. D-1880 und RA Horbas).
 
 # Anlagen (Teilbeweisführung legt Latte hoch)
 
