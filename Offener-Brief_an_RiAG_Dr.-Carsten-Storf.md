@@ -99,9 +99,38 @@ post post scriptum
 Du mußt gemäß meinen Richtlinien und denen des JUMI/ULD/BSI - _was identisch erscheinen mag_ - bei der ZIT einen Sicherheitsvorfall melden.
 
 <video src="https://github.com/user-attachments/assets/08adf02e-49d9-48db-bf99-e3de481e83b3" controls="controls" style="max-width: 730px;"></video>
+
 <video src="https://github.com/user-attachments/assets/d542436f-34cf-4723-b2db-5b70cf8d1192" controls="controls" style="max-width: 730px;"></video>
+
 <video src="https://github.com/user-attachments/assets/236432c3-ad3b-4a69-97ad-3445d123393e" controls="controls" style="max-width: 730px;"></video>
+
+Zeugen zum Rau-Prozess 2018 sind die beiden Wachtmeister:
+
+thomas.kuehl@ag-rendsburg.landsh.de
+
+pascal.schmidt@ag-rendsburg.landsh.de
+
 <video src="https://github.com/user-attachments/assets/76cc0559-c5a8-429a-8661-2c4580e30165" controls="controls" style="max-width: 730px;"></video>
+
+# Anlagen (Teilbeweisführung legt Latte hoch)
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.90.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.155.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.156.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.157.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.158.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+...
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20170216_Geordneter_Rueckzug-zensiert.pdf.1.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20170216_Geordneter_Rueckzug-zensiert.pdf.2.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+
 
 # zusätzliche Adressaten in TO
 
@@ -289,14 +318,6 @@ h.spehr@stadtwerke-rendsburg.de
 info@stadtwerke-rendsburg.de
 
 lka532@polizei.berlin.de
-
-
-Zeugen zum Rau-Prozess 2018 sind die beiden Wachtmeister:
-thomas.kuehl@ag-rendsburg.landsh.de
-
-pascal.schmidt@ag-rendsburg.landsh.de
-
-
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
