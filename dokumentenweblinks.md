@@ -7,3 +7,5 @@ Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Githu
 * [Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 24.12.2024)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 05.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Protocols of Learned Elders of Zion (hOCR von FBI Akte)](https://drive.proton.me/urls/Q4AGWQ8598#hSq9SaPmrgH2)
+
+in Arbeit ...
