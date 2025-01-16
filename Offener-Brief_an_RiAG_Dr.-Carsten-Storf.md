@@ -137,7 +137,13 @@ dip@mid.ru
 
 info@miami.diplo.de
 
-NPIC@state.gov
+npic@state.gov
+
+berlinpco@state.gov
+
+contract@win.donaldjtrump.com
+
+accredit@gov.ru
 
 ...
 
@@ -193,6 +199,17 @@ cornelia.schoenfelder@olg.justiz.sachsen.de Vize
 
 ...
 
+info@leuchtturmARD.de
+
+buerger@afdbundestag.de
+
+info@jonacast.com
+
+gerum@cascadeur.de
+
+john@mkffs.co.uk
+
+
 ## zusätzliche Adressaten in CC für weitere Justizopfer (unbeteiligte Dritte uvw Justizunfälle)
 
 poststelle@sta-la.bayern @all
@@ -214,6 +231,70 @@ pi.passau@polizei.bayern.de
 J.Asanger@t-online.de
 
 info@br.de
+
+matthias.gehrmann@ag-rendsburg.landsh.de
+
+heesch@buedelsdorf.de
+
+rathaus@buedelsdorf.de
+
+grundbuch@ag-rendsburg.landsh.de
+
+StSt1.Kiel.LPA@polizei.landsh.de
+
+bai@polizei.landsh.de
+
+nms-west.pst@polizei.landsh.de
+
+dasta.k42.kpi.pd-l@polizei.sachsen.de
+
+verwaltung@staki.landsh.de
+
+christine.langenfeld@bundesverfassungsgericht.de
+
+poststelle.fa-eg@finanzamt.bayern.de
+
+poststelle@fa-rendsburg.landsh.de
+
+info@enseco.de
+
+info@horbas.de
+
+info@ra-helmuthorbas.com
+
+info@rechtsanwalt-koenig.de
+
+poststelle@ag-eg.bayern.de
+
+verwaltung@gensta.justiz.sachsen.de
+
+verwaltung@stal.justiz.sachsen.de
+
+tamara.winkler@stal.justiz.sachsen.de
+
+gensta-nmb@justiz.sachsen-anhalt.de
+
+gensta@justiz.sachsen-anhalt.de
+
+poststelle-staatsanwaltschaft@sta.justiz.hamburg.de
+
+christiane.roderburg@aggrm.justiz.sachsen.de
+
+uhpoststelle@justiz.hamburg.de
+
+kundenservice@stadtwerke-grimma.de
+
+h.spehr@stadtwerke-rendsburg.de
+
+info@stadtwerke-rendsburg.de
+
+lka532@polizei.berlin.de
+
+
+Zeugen zum Rau-Prozess 2018 sind die beiden Wachtmeister:
+thomas.kuehl@ag-rendsburg.landsh.de
+
+pascal.schmidt@ag-rendsburg.landsh.de
 
 
 
