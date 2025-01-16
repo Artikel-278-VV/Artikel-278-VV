@@ -340,7 +340,7 @@ verwaltung@gensta.justiz.sachsen.de
 
 verwaltung@stal.justiz.sachsen.de
 
-tamara.winkler@stal.justiz.sachsen.de  (sieht im 10.02.2023 keine Hausdurchsuchung, weshalb Befehl unnötig erscheinen muß, denn es gab keinen)
+tamara.winkler@stal.justiz.sachsen.de tamara.winkler@stal.justiz.sachsen.de geboren am 01.09.1962 - grob ungeeignet
 
 gensta-nmb@justiz.sachsen-anhalt.de
 
@@ -379,6 +379,8 @@ ute.telge@ag-rendsburg.landsh.de
 Svenja.Bodenstein@ag-rendsburg.landsh.de
 
 franziska.schaefer@polizei.sachsen.de
+
+daniela.francke@stal.justiz.sachsen.de geboren am 01.07.1979 - grob ungeeignet  (sieht im 10.02.2023 keine Hausdurchsuchung, weshalb Befehl unnötig erscheinen muß, denn es gab keinen)
 
 frank-walter.steinmeier@bpra.bund.de
 
