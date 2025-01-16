@@ -106,9 +106,9 @@ Du mußt gemäß meinen Richtlinien und denen des JUMI/ULD/BSI - _was identisch 
 
 Zeugen zum Rau-Prozess 2018 sind die beiden Wachtmeister:
 
-thomas.kuehl@ag-rendsburg.landsh.de
+thomas.kuehl@ag-rendsburg.landsh.de (RSV, Tipprunde)
 
-pascal.schmidt@ag-rendsburg.landsh.de
+pascal.schmidt@ag-rendsburg.landsh.de (Tipprunde)
 
 <video src="https://github.com/user-attachments/assets/76cc0559-c5a8-429a-8661-2c4580e30165" controls="controls" style="max-width: 730px;"></video>
 
