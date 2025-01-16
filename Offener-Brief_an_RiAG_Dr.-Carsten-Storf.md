@@ -169,6 +169,8 @@ pascal.schmidt@ag-rendsburg.landsh.de (Tipprunde)
 
 verwaltung@ag-rendsburg.landsh.de
 
+thomas.dietz@bundestag.de
+
 bverfg@bundesverfassungsgericht.de
 
 stephan.harbarth@bundesverfassungsgericht.de
