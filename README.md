@@ -21,6 +21,9 @@ Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](http
 
 Zur [Diskussion](https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/1):
 
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.1.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
+
 # Inhaltsverzeichnis (SDBR, kurz S. 1 v. 24.12.2024)
 
 S. 2   Vertrag über die abschließende Regelung in bezug auf Deutschland
@@ -182,10 +185,6 @@ S. 691 Recht-Staat und Recht-Staatlichkeit von 1815 bis 2024 (grob)
 S. 693 Corona-Maßnahmen-Beschluss vom 28.07.2022 - 12 Qs 34/22
 
 S. 704 OFW Alexander Bittner a.D. über Folter in den JVAs 2024
-
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.1.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
-
 
 [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 08.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
