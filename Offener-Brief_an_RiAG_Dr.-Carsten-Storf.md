@@ -112,6 +112,8 @@ pascal.schmidt@ag-rendsburg.landsh.de (Tipprunde)
 
 <video src="https://github.com/user-attachments/assets/76cc0559-c5a8-429a-8661-2c4580e30165" controls="controls" style="max-width: 730px;"></video>
 
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20230917_StA-Francke.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+
 # Anlagen (Teilbeweisführung legt Latte hoch)
 
 [![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.90.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
