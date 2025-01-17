@@ -343,7 +343,7 @@ verwaltung@gensta.justiz.sachsen.de
 
 verwaltung@stal.justiz.sachsen.de
 
-tamara.winkler@stal.justiz.sachsen.de tamara.winkler@stal.justiz.sachsen.de geboren am 01.09.1962 - grob ungeeignet
+tamara.winkler@stal.justiz.sachsen.de geboren am 01.09.1962 - grob ungeeignet
 
 gensta-nmb@justiz.sachsen-anhalt.de
 
