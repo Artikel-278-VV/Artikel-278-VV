@@ -387,6 +387,18 @@ daniela.francke@stal.justiz.sachsen.de geboren am 01.07.1979 - grob ungeeignet  
 
 frank-walter.steinmeier@bpra.bund.de
 
+<video src="https://github.com/user-attachments/assets/b16a101f-7b98-4db2-8787-103ff1a524da" controls="controls" style="max-width: 730px;"></video>
+<video src="https://github.com/user-attachments/assets/7b94739d-148d-4533-9323-d5d50286fbdf" controls="controls" style="max-width: 730px;"></video>
+
+
+
+
+
+
+
+
+
+
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
