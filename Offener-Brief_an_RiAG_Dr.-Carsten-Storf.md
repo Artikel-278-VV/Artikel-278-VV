@@ -391,7 +391,7 @@ frank-walter.steinmeier@bpra.bund.de
 <video src="https://github.com/user-attachments/assets/b16a101f-7b98-4db2-8787-103ff1a524da" controls="controls" style="max-width: 730px;"></video>
 <video src="https://github.com/user-attachments/assets/7b94739d-148d-4533-9323-d5d50286fbdf" controls="controls" style="max-width: 730px;"></video>
 
-Anm.: Nur Reichsbürger konnten hier gemeint sein (RGBl. I 1935 S. 1156 ff.) und nicht einmal der Vater von Norber Gogolin (SS-OSBF) konnte via Antrag nachweisen, wer er ist, und mußte daher abgelehnt werden. Wäre seine Tätigkeit indes rechtserheblich oder politisch gewesen, so wäre ihm wohl "von Amtes wegen" die Reichsbürgerschaft verliehen worden, wie allen anderen auch (vgl. RGBl. I 1935 S. 1333 ff.). Heute schlummert undefiniert in Art. 116 I GG ein BrD Staatsbürger, welcher nazistisch ebenso nicht jedem zusteht (Dr. Weidel weiß ich meine). Regeln wird das wohl **§ 30 I Sz. 3 StAG**.
+Anm.: Nur Reichsbürger konnten hier gemeint sein (RGBl. I 1935 S. 1156 ff.) und nicht einmal der Vater von Norber Gogolin (SS-OSBF) konnte via Antrag nachweisen, wer er ist, und mußte daher abgelehnt werden. Wäre seine Tätigkeit indes rechtserheblich oder politisch gewesen, so wäre ihm wohl "von Amtes wegen" die Reichsbürgerschaft verliehen worden, wie allen anderen auch (vgl. RGBl. I 1935 S. 1333 ff.). Heute schlummert undefiniert in **Art. 116 I GG** ein **BrD Staatsbürger**, welcher **nazistisch ebenso nicht jedem zusteht** (Dr. Weidel weiß, was ich meine). Regeln wird das wohl **§ 30 I Sz. 3 StAG**.
 
 " _Bei Vorliegen eines öffentlichen Interesses kann die Feststellung auch **von Amts wegen** erfolgen._ "
 
