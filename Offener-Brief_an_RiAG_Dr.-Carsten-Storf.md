@@ -632,15 +632,15 @@ Jemand war so nett und hat bereits vorsorglich ein [Backup auf Wayback](https://
 # Eingangsbestätigung via sicherster End-zu-End Verschlüsselung (EGVP zu alt und DeMail ein Verbrechen)
 
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/BVerfG-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/BVerfG-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)]
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/BR-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/BR-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)]
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/BGH-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/BGH-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)]
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/GBA-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/GBA-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)]
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/USA-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/USA-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)]
 
 
 ![BBildschirmfoto vom 2025-01-18 15-47-55](https://github.com/user-attachments/assets/d373a6e3-4156-44bf-8470-043fbc610c69)
