@@ -649,7 +649,7 @@ Jemand war so nett und hat bereits vorsorglich ein [Backup auf Wayback](https://
 
 https://www.youtube.com/@MikeLevin
 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E82Lkh5urvw?si=YOM9aMIwuoE5RGpx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+[![Goldene Regel]("https://www.youtube.com/embed/E82Lkh5urvw?si=YOM9aMIwuoE5RGpx)
 
 
 
