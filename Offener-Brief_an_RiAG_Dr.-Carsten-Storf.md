@@ -645,7 +645,10 @@ Jemand war so nett und hat bereits vorsorglich ein [Backup auf Wayback](https://
 
 ![BBildschirmfoto vom 2025-01-18 15-47-55](https://github.com/user-attachments/assets/d373a6e3-4156-44bf-8470-043fbc610c69)
 
-<video src="https://odysee.com/@MatrixHacker:f/Die-Goldene-Regel---The-Golden-Rule---Cinema:d" controls="controls" style="max-width: 730px;"></video>
+<video src="https://github.com/user-attachments/assets/553216c8-74a2-45df-9f0d-b2d7d6862027" controls="controls" style="max-width: 730px;"></video>
+
+
+
 
 
 
