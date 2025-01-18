@@ -649,7 +649,10 @@ Jemand war so nett und hat bereits vorsorglich ein [Backup auf Wayback](https://
 
 https://www.youtube.com/@MikeLevin
 
-[![Goldene Regel](![Bildschirmfoto vom 2025-01-18 23-17-03](https://github.com/user-attachments/assets/5ea540d1-ef30-4d6b-bf5a-df5bcb9982c9))](https://www.youtube.com/embed/E82Lkh5urvw?si=YOM9aMIwuoE5RGpx)
+![Bildschirmfoto vom 2025-01-18 23-17-03](https://github.com/user-attachments/assets/5ea540d1-ef30-4d6b-bf5a-df5bcb9982c9)
+
+https://www.youtube.com/embed/E82Lkh5urvw?si=YOM9aMIwuoE5RGpx
+
 
 
 
