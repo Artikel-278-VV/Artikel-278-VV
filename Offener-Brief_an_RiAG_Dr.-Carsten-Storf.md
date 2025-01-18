@@ -4,7 +4,9 @@ You can click the Preview link to take a look at your changes.
 --->
 ## 4Q+ EO13903... Law No. 1, 2 u. 7 Anlage Art. 139 GG iVm. Art. 123 I GG u. Art. 178 II WRV u. Art. 68 BVerf. iVm. Art. 111 Sz. 2 PreußV. v. 4./6. 1851 Anl. VIII (" _Das Nähere bestimmt das Gesetz._ ", GSl. S. 451 Belagerungszustand, s. Adolf Arndt S. 180)
 # Offener Brief an [AG Rendsburg](https://www.schleswig-holstein.de/DE/justiz/gerichte-und-justizbehoerden/AmtsgerichteSH/AGRendsburg/AGRendsburg_node.html) - Dr. Storf (w. aufs. RiAG, kein Direktor, N.N.)
+![a91edb30-cfdf-4ae3-9856-39476116be8b](https://github.com/user-attachments/assets/e93ed38c-32e2-48c4-b652-4f8bf51d599a)
 carsten.storf@ag-rendsburg.landsh.de
+
 
 Königstraße **17**, 24768 Rendsburg
 
