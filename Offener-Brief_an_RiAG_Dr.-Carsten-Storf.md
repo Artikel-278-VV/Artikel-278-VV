@@ -643,3 +643,8 @@ Jemand war so nett und hat bereits vorsorglich ein [Backup auf Wayback](https://
 [![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/USA-Hinz.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
 
+![BBildschirmfoto vom 2025-01-18 15-47-55](https://github.com/user-attachments/assets/d373a6e3-4156-44bf-8470-043fbc610c69)
+
+
+
+
