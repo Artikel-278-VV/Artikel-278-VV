@@ -9,8 +9,6 @@ You can click the Preview link to take a look at your changes.
 
 https://odysee.com/@MatrixHacker:f/Die-Goldene-Regel---The-Golden-Rule---Cinema:d
 
-<video src="https://github.com/user-attachments/assets/97d9e179-3c4e-4097-90f5-77bd8cbc5810" controls="controls" style="max-width: 730px;"></video>
-
 
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
