@@ -24,8 +24,7 @@ Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](http
 
 Zur [Diskussion](https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/1):
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.1.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 1](https://github.com/user-attachments/assets/5c122cf0-2fb7-417e-89c1-2f3b46647f5f)
 
 # Inhaltsverzeichnis (SDBR, kurz S. 1 v. 24.12.2024)
 
