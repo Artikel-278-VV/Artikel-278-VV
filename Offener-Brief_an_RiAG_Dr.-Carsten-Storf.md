@@ -116,6 +116,8 @@ pascal.schmidt@ag-rendsburg.landsh.de (Tipprunde)
 
 **Wohnungssturm durch 1. Leipziger Einsatzzug Modes** (ca. 25-30 SiPo), zuzüglich Ortspolizei, Straßensperrungen, Heli, Nachbareingänge und Hinterhöfe (ca. 50), wegen 760,- € Raub bzgl. zweier offenkundig korrupter Strafbefehle (verkürzter Prozess statt " _fairem Verfahren_ " n. **Art. 6 MRK**) und ohne Durchsuchungsbefehl, ohne zu wissen wer in der Wohnung ist oder nicht, bis auf die Tochter, einen Tag vor dem 18. am 10.02.2023 (korruption mit Dr. Langenfeld D-1880, RA Wöhlermann Pre. D-1880 und RA Horbas). Es ging um zusammen 760,- € Putativstrafe und gerade nicht um die die Bebühren (JBeitrO), die bewußt von Unbekannt gebliebenen coactus feci gezahlt wurden (vgl. Videos, keine Einlassung z.Person). Herr Hahn sagte folgendes dazu am 08.01.2025:
 
+Artikel-278-VV/beweis-20230210-1.md
+
 https://github.com/Znih/Artikel-278-VV/blob/main/beweis-20230210-1.md
 
 <video src="https://github.com/user-attachments/assets/3cefff0e-ce30-445f-8879-39767c45ed07" controls="controls" style="max-width: 730px;"></video>
