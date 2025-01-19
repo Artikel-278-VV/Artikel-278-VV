@@ -7,9 +7,6 @@ You can click the Preview link to take a look at your changes.
 
 <video src="https://github.com/user-attachments/assets/52d816a5-8ddb-4c8c-be8c-f5b8a98195e8" controls="controls" style="max-width: 730px;"></video>
 
-https://odysee.com/@MatrixHacker:f/Die-Goldene-Regel---The-Golden-Rule---Cinema:d
-
-
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
 * [Waffe-StAG und NAZI Staatsbürger in der BrD - Sendung mit der Maus für Erwachsene](https://odysee.com/@MatrixHacker:f/deutsch2:e)
@@ -22,7 +19,7 @@ Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Githu
 * [Quellen-Sammlung d. Deutschen Bundesrechtes mvwN u. Faksimiles (aktuelle Fassung v. 08.01.2025)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 * [Code-Schnippl auf Gist](https://gist.github.com/hinzigers)
 
-Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](https://odysee.com/@MatrixHacker:f/schmid:8), die jeder Deutsche mindestens einmal im Leben gehört haben muß. ([Backup von Anonym](https://odysee.com/Schmid:3))
+Die [Grundsatzrede zum Bonner Grundgesetz von Prof. Dr. Carlo Schmid (SPD)](https://odysee.com/@MatrixHacker:f/schmid:8), die jeder Deutsche mindestens einmal im Leben gehört haben muß ([Backup von Anonym](https://odysee.com/Schmid:3)), und die [Goldenen Regel](https://odysee.com/@MatrixHacker:f/Die-Goldene-Regel---The-Golden-Rule---Cinema:d).
 
 Zur [Diskussion](https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/1):
 
