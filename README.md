@@ -9,6 +9,9 @@ You can click the Preview link to take a look at your changes.
 
 <video src="https://github.com/user-attachments/assets/52d816a5-8ddb-4c8c-be8c-f5b8a98195e8" controls="controls" style="max-width: 730px;"></video>
 
+<video src="https://github.com/user-attachments/assets/90bca90a-e350-4d98-9ed7-237cc808a93c" controls="controls" style="max-width: 730px;"></video>
+
+
 # Artikel 278 Versailler Vertrag
 Weblinks zu vielen wichtigen deutschen **Dokumenten** und zu [vwN hier auf Github](https://github.com/Artikel-278-VV/Artikel-278-VV) aber das [Willstnichtwissen](https://t.me/+KnSHdHP98MxjNThi).
 * [Waffe-StAG und NAZI Staatsbürger in der BrD - Sendung mit der Maus für Erwachsene](https://odysee.com/@MatrixHacker:f/deutsch2:e)
