@@ -5,6 +5,8 @@ You can click the Preview link to take a look at your changes.
 
 <video src="https://github.com/user-attachments/assets/51a1c58a-8a1d-4147-b9e9-30049d5e174a" controls="controls" style="max-width: 730px;"></video>
 
+<video src="https://github.com/user-attachments/assets/d9b6f07d-e15f-4891-8dd1-996a6b0cfecb" controls="controls" style="max-width: 730px;"></video>
+
 <video src="https://github.com/user-attachments/assets/52d816a5-8ddb-4c8c-be8c-f5b8a98195e8" controls="controls" style="max-width: 730px;"></video>
 
 # Artikel 278 Versailler Vertrag
