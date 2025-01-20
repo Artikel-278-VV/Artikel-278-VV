@@ -156,24 +156,22 @@ pascal.schmidt@ag-rendsburg.landsh.de (Tipprunde)
 
 [![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.191.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
 
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 704](https://github.com/user-attachments/assets/02a53576-4c18-4a17-b3eb-72fb0e731148)
+
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 705](https://github.com/user-attachments/assets/70819d26-0f35-4c9f-8311-c2f78fccc25b)
+
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 706](https://github.com/user-attachments/assets/c345fa99-05f9-4988-8a00-181f10c964be)
 
 
+### unhandliche Massenmails
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.704.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+![4Q+ EO13903  Law No  1, 2 u  7 Anlage Art  139 GG iVm  Art  123 I GG pdf 1](https://github.com/user-attachments/assets/2066bf21-8ce6-4f0f-8580-65261665f4d8)
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.705.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+![4Q+ EO13903  Law No  1, 2 u  7 Anlage Art  139 GG iVm  Art  123 I GG pdf 2](https://github.com/user-attachments/assets/a5e6cdf2-768c-408f-81a5-cdc0c7ce6eb5)
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.706.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+![20170216_Geordneter_Rueckzug-zensiert pdf 1](https://github.com/user-attachments/assets/30f4a512-5dd4-4cd9-abcc-5dbcbc43989e)
 
-
-
-
-...
-
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20170216_Geordneter_Rueckzug-zensiert.pdf.1.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20170216_Geordneter_Rueckzug-zensiert.pdf.2.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
+![20170216_Geordneter_Rueckzug-zensiert pdf 2](https://github.com/user-attachments/assets/4842473d-8e63-46a5-93da-f8a79dda96da)
 
 
 # zusätzliche Adressaten in TO
