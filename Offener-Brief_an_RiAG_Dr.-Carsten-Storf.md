@@ -159,24 +159,23 @@ https://github.com/Znih/Artikel-278-VV/blob/main/beweis-20230210-1.md
 
 ![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 191](https://github.com/user-attachments/assets/83569371-67da-44a2-bc3d-f82ae6715456)
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.704.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 704](https://github.com/user-attachments/assets/e4875c58-ad0e-440a-9112-40cdf250881e)
+
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 705](https://github.com/user-attachments/assets/4579529f-6ed6-4e18-b722-a74932312462)
+
+![1815-2024_Q-Sammlung-Deutsches-Bundesrecht mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland pdf 706](https://github.com/user-attachments/assets/d2c97a4e-b5b6-4d27-ae20-bfd6ac15d9a6)
 
 
+### unhandliche evidenzbasierte Massenmails
+
+![4Q+ EO13903  Law No  1, 2 u  7 Anlage Art  139 GG iVm  Art  123 I GG pdf 1](https://github.com/user-attachments/assets/50f0bac4-ad3a-4611-81d6-09cf741d694f)
+
+![4Q+ EO13903  Law No  1, 2 u  7 Anlage Art  139 GG iVm  Art  123 I GG pdf 2](https://github.com/user-attachments/assets/334f584b-2d39-4891-9fb3-96daf89156fa)
 
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.705.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
+![20170216_Geordneter_Rueckzug-zensiert pdf 1](https://github.com/user-attachments/assets/3f8ac1ec-cc92-4b02-96c0-fe068e84aff7)
 
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/1815-2024_Q-Sammlung-Deutsches-Bundesrecht%20mvwN_Artikel-9-2plus4_Das-vereinte-Deutschland.pdf.706.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
-
-
-
-...
-
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20170216_Geordneter_Rueckzug-zensiert.pdf.1.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
-[![alt text](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20170216_Geordneter_Rueckzug-zensiert.pdf.2.jpg)](https://drive.proton.me/urls/MEY7CR9XXM#rIhfRk0TC47j)
-
+![20170216_Geordneter_Rueckzug-zensiert pdf 2](https://github.com/user-attachments/assets/a49063a1-704c-40c8-8edf-cd68a4bc19e0)
 
 
 # zusätzliche Adressaten in TO
