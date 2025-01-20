@@ -93,8 +93,15 @@ BGBl. III Gld.Nr.: 611-1 (Bundesrecht)
 
 ![2023_Einkommenssteuergesetzesammlung-bis-1933 pdf 6](https://github.com/user-attachments/assets/0b063bac-3894-4466-a882-a5bcc3d9b9a6)
 
+**Anlagen Seite 7 bis 2988** enthalten die **versichernden Faksimile Dokumente** zur Einsicht. Die wohl **justiziabelsten** Auszüge darauf sind folgend aufzuführen:
 
+![2023_Einkommenssteuergesetzesammlung-bis-1933 pdf 2801](https://github.com/user-attachments/assets/9d9a39ee-b7ce-4853-b664-ae08bb7a717f)
 
+![2023_Einkommenssteuergesetzesammlung-bis-1933 pdf 2802](https://github.com/user-attachments/assets/8ca1eae2-1a8b-4c16-8784-efb0138e8ab2)
 
+![2023_Einkommenssteuergesetzesammlung-bis-1933 pdf 2803](https://github.com/user-attachments/assets/f09433f9-128d-4a80-bca2-dc784a33358a)
 
+![2023_Einkommenssteuergesetzesammlung-bis-1933 pdf 2804](https://github.com/user-attachments/assets/804c4e40-35ec-4920-be8d-5afe827aae94)
+
+![2023_Einkommenssteuergesetzesammlung-bis-1933 pdf 2805](https://github.com/user-attachments/assets/2c7b9590-aa43-4143-9138-1397428d7f44)
 
