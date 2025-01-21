@@ -18,6 +18,8 @@ fördere stets die Schwächsten, soweit Du kannst.“ Macht zur Verantwortung wi
 um dann Allen und Jedem bereitzustellen, sofern aufrichtig gewünscht und soweit Du kannst.“
 Wissen zur Verantwortung wie Recht zur Pflicht.
 
+Quelle: [MatrixHacker](https://github.com/Artikel-278-VV/Artikel-278-VV/blob/main/20240801_Aufsatz_deutsche-Staatsangehoerigkeit_Deutsche-Buergerschaft_Waffe-StAG_berichtigte-Fassung.pdf)
+
 <video src="https://github.com/user-attachments/assets/51a1c58a-8a1d-4147-b9e9-30049d5e174a" controls="controls" style="max-width: 730px;"></video>
 
 <video src="https://github.com/user-attachments/assets/90bca90a-e350-4d98-9ed7-237cc808a93c" controls="controls" style="max-width: 730px;"></video>
