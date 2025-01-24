@@ -25,9 +25,6 @@ You can click the Preview link to take a look at your changes.
 
 [2018_StA-Tiefenblick_MatrixHacker.webm](https://github.com/user-attachments/assets/baa2988b-0df5-467c-8cf2-4831c509d5b6)
 
-[sta-kl.webm](https://github.com/user-attachments/assets/4fe3c1e5-fb5d-49ff-ae52-5a3cb253bb4b)
-
-
 
 # Artikel I – Ausgleich
 
