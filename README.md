@@ -3,6 +3,32 @@ Artikel-278-VV/Artikel-278-VV is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 
+<div align="center"> 
+  <p>Visitor count</p>
+  <img src="https://profile-counter.glitch.me/Artikel-278-VV/count.svg" alt="Visitor's Count" />
+</div>
+<div style="display: flex; justify-content: center; align-items: center; flex-direction: column;">
+  <img width="390" src="https://github-readme-stats.vercel.app/api?username=Artikel-278-VV&theme=transparent&count_private=true&show_icons=true&rank_icon=github&locale=en" alt="Znih's GitHub Stats" />
+  <img width="280" src="https://github-readme-stats.vercel.app/api/top-langs?username=Artikel-278-VV&theme=transparent&layout=donut&hide=css,php,ClassASP&langs_count=2&border_radius=10&show_icons=true&locale=en" alt="Artikel-278-VV's Most Used Languages" />
+</div>
+  <a href="https://github.com/ashutosh00710/github-readme-activity-graph">
+    <img src="https://github-readme-activity-graph.vercel.app/graph?username=Artikel-278-VV&theme=xcode&hide_border=true" alt="Activity graph">
+</a>
+
+<a href="https://github.com/Znih">
+    <img src="https://github.com/Znih/XiaomingX/blob/551793bb446888a2df6be529bb9a3802ddba38b3/output/github-snake-dark.svg" />
+</a>
+
+<a href="https://github.com/Znih">
+    <img src="https://github.com/Znih/XiaomingX/blob/315b265f6f081e9104f18365412cedaab4110e99/output/github-snake.svg" />
+</a>
+
+[2018_StA-Tiefenblick_MatrixHacker.webm](https://github.com/user-attachments/assets/baa2988b-0df5-467c-8cf2-4831c509d5b6)
+
+[sta-kl.webm](https://github.com/user-attachments/assets/4fe3c1e5-fb5d-49ff-ae52-5a3cb253bb4b)
+
+
+
 # Artikel I – Ausgleich
 
 „Behandle Leben so, daß es ohne Unheil bleibt, so wie Du selbst stets ohne Unheil bleiben willst.“
