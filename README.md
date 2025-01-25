@@ -1,7 +1,23 @@
+<!-- Nur für Testzwecke. Kopiere diese Zeilen nicht in echte Projekte! -->
+
+<!--[if lt IE 9]><script src="../../assets/js/ie8-responsive-file-warning.js"></script><![endif]-->
+
+<!--<script src="assets/js/ie-emulation-modes-warning.js"></script>-->
+
+<!-- Unterstützung für Media Queries und HTML5-Elemente in IE8 über HTML5 shim und Respond.js -->
+
+<!--[if lt IE 9]>
+      <script src="https://oss.maxcdn.com/html5shiv/3.7.2/html5shiv.min.js"></script>
+      <script src="https://oss.maxcdn.com/respond/1.4.2/respond.min.js"></script>
+<![endif]-->
+
 <!---
 Artikel-278-VV/Artikel-278-VV is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+
+https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/17#discussioncomment-11953242
+
 
 <div align="center"> 
   <p>Besucherzähler</p>
