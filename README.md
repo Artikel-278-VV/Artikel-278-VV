@@ -38,7 +38,7 @@ Weitere Informationen folgen [...](https://github.com/Artikel-278-VV/Artikel-278
 <details open>
  <summary><h3>Bio</h3>
        <p align="center">
-             <b>Für alle Preußischen Staatsangehörigen</b> mit der Eigenschaft als Preuße, wenn auch weiterhin mit vakantem Status (Art. 1 BVerf. vs. Art. 2 WRV) UND <b>alle Bundesangehörigen</b> mit der Eigenschaft als Deutsche gem. Art. 1-3 I-III BVerf. iVm. <b>§ 1 BuStAG</b>b>.
+             <b>Für alle Preußischen Staatsangehörigen</b> mit der Eigenschaft als Preuße, wenn auch weiterhin mit vakantem Status (Art. 1 BVerf. vs. Art. 2 WRV) UND <b>für alle Bundesangehörigen</b> mit der Eigenschaft als Deutsche gemäß Art. 1 bis 3 I-III BVerf. iVm. <b>§ 1 BuStAG</b>b>.
        </p>
  </summary>
 <p align="center">
