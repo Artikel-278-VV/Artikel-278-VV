@@ -30,7 +30,7 @@ Willkommen zu meinem Projekt!
 - GitHub Benutzer: {{GITHUB_USER}}
 - Repository Besitzer: {{GITHUB_OWNER}}
 
-Weitere Informationen folgen [...](https://github.com/Artikel-278-VV/Artikel-278-VV/commit/f8ee65886f60fbec9a7b57c1d72b8b14c4457cf0)
+Weitere Informationen folgen [...](https://github.com/Artikel-278-VV/Artikel-278-VV/commit/)
 
 <p align="center">
   <img alt="Daily Work" height="160px" src="https://i.imgur.com/uhZdH9C.gif" />
