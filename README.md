@@ -25,8 +25,8 @@ https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/17#discussioncommen
 
 Willkommen zu meinem Projekt!
 
-- GitHub Benutzer: Znih
-- Repository Besitzer: Znih
+- GitHub Benutzer: {{GITHUB_USER}}
+- Repository Besitzer: {{GITHUB_USER}}
 
 Weitere Informationen folgen [...](https://github.com/Artikel-278-VV/Artikel-278-VV/commit/f8ee65886f60fbec9a7b57c1d72b8b14c4457cf0)
 
