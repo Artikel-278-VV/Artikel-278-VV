@@ -36,7 +36,11 @@ Weitere Informationen folgen [...](https://github.com/Artikel-278-VV/Artikel-278
   <img alt="Daily Work" height="160px" src="https://i.imgur.com/uhZdH9C.gif" />
 </p>
 <details open>
- <summary><h3>Bio</h3></summary>
+ <summary><h3>Bio</h3>
+       <p>
+             `Für alle Preußischen Staatsangehörigen mit der Eigenschaft als Preuße, wenn auch weiterhin mit vakantem Status (Art. 1 BVerf. vs. Art. 2 WRV) UND alle Bundesangehörigen mit der Eigenschaft als Deutsche gem. Art. 1-3 I-III BVerf. iVm. § 1 BuStAG.`
+       </p>
+ </summary>
 <p align="center">
 <img src="https://readme-typing-svg.demolab.com/?lines=Every+day%2C+learn+something+new.;Make+mistakes%2C+learn+from+them.;Work+hard%2C+stay+humble%2C+succeed.;Dream+big%2C+take+action%2C+succeed.;Small+steps+lead+to+big+leaps.;Take+action%2C+make+things+happen.&font=Fira%20Code&center=true&width=440&height=45&color=808080&vCenter=true&pause=1000&size=22" />
 </p>
