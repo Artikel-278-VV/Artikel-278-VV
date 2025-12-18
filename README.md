@@ -200,6 +200,8 @@ Source: [Wikisource](https://de.wikisource.org/wiki/Deutsches_Reichsgesetzblatt_
 
 ![Screenshot_20251218_140255~2.jpg](https://github.com/user-attachments/assets/eb018753-2ea9-480a-9ed5-6bddd92cd54a) 
 
+https://github.com/Znih/Znih/blob/main/ist%20Zustand%2F19901003_abschliessende-Regelung-in-Bezug-auf-Deutschland.md
+
 Vertrag v. 12.09.1990 über die „*abschließende*" „*Regelung*" in bezug auf Deutschland
 
 "*2+4-Vertrag*"
