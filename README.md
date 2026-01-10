@@ -18,7 +18,7 @@ You can click the Preview link to take a look at your changes.
 
 https://github.com/Artikel-278-VV/Artikel-278-VV/discussions/17#discussioncomment-11953242
 
-Nur ein [backup](https://web.archive.org/web/20250124101201/https://github.com/Artikel-278-VV/) von inzwischen hunderten Backups, Klone und Forks. **Es ist NICHT mehr aufzuhalten!!!**
+Nur ein [backup](https://web.archive.org/web/20250124101201/https://github.com/Artikel-278-VV/) von inzwischen hunderten Backups, Klone und Forks. **Es ist NICHT mehr aufzuhalten!!!** auch wenn weiterhin versucht.
 
 [Und!?_Wie_gehts_euch_so_in_der_YGL-Telegram-Babbel?.webm](https://github.com/user-attachments/assets/942b4949-9b70-4f9b-835d-edcb81b4f3d2)
 
