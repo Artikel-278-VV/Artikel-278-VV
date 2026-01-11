@@ -370,46 +370,11 @@ https://github.com/user-attachments/assets/d883fcf2-0a0c-4d8f-9a80-31fd83a9362f
 <img alt="Profile Views" title="Profile Views" src="https://komarev.com/ghpvc/?username=Znih&style=for-the-badge&color=29bf12"/>
   <img alt="Last Update" title="Last Update" src="https://img.shields.io/github/last-commit/Artikel-278-VV/Artikel-278-VV?logo=markdown&label=LAST+UPDATE&color=29bf12&style=for-the-badge"/>
 </p>
-<p align="center">
-      <a href="https://youtube.com/@WELT">
-         <img alt="YouTube Channel" title="YouTube Channel" src="https://img.shields.io/badge/YouTube-%23FF0000.svg?logo=YouTube&logoColor=white"/></a> 
-      <a href="https://facebook.com/marco.hinz.14">
-         <img alt="FaceBook Page" title="FaceBook Page" src="https://img.shields.io/badge/FaceBook-%234267B2.svg?logo=FaceBook&logoColor=white"/></a>
-      <a href="mailto:art278vv@proton.me">
-         <img alt="Mail Account" title="Mail Account" src="https://img.shields.io/badge/Mail-%23c71610.svg?logo=Gmail&logoColor=white"/></a>
-      <a href="https://x.com/Marco874753">
-         <img alt="Twitter Account" title="X Account" src="https://img.shields.io/badge/Twitter-%231DA1F2.svg?logo=Twitter&logoColor=white"/></a>
-</p>
+
+
 
 ---
 
-
-<details open>
- <summary><h3>GitHub Trophies</h3></summary>
-
-<img alt="GitHub Trophies" title="GitHub Trophies" src="https://github-profile-trophy.vercel.app/?username=Artikel-278-VV&column=8&theme=gruvbox&no-frame=true"/>
-
----
-
-</details>
-
-<details open>
- <summary><h3>Random Dev Quote</h3></summary>
-
-<img alt="Random Dev Quote" title="Random Dev Quote" src="https://quotes-github-readme.vercel.app/api?type=horizontal&theme=radical"/>
-
----
-
-</details>
-
-<details open> 
-  <summary><h3>Github Stats and Activity</h3></summary>
-
-  <h3>Streak Stats</h3>
-
-  <p>
-      <img title="Streak Stats" alt=JahidNation Streak" src="https://streak-stats.demolab.com/?user=jahidnation&theme=monokai-metallian&hide_border=true"/>
-  </p>
 
   <h3>GitHub Profile Stats</h3>
   <p>
@@ -418,17 +383,7 @@ https://github.com/user-attachments/assets/d883fcf2-0a0c-4d8f-9a80-31fd83a9362f
 
 ---
 
-<p align="center">
-<img alt="Contributions" title="Contributions" src="https://github.com/jahidnation/jahidnation/blob/contributions/snake.svg"/>
-</p>
 
-<p align="center"><quote>
-<b>ZUSAMMENhänge ZUSAMMEN ZUSAMMENsetzen!</b>
-Analyse Systemfehler: <b>Geldschöpfung</b> und <b>unendliches Wachstum</b> sind <b>Werkzeuge</b> zur <b>modernen Versklavung</b>. Ein Planet mit <b>begrenzten Ressourcen</b> an Rohstoffen und <b>begrenztem Platz</b> für den Müll, <b>widerspricht <u>logisch</u></b> einem <b>unendlichen Wachstum</b> und der Notlösung einer "<b><i>Geplanten Obsoleszenz</i></b>", mithin also die Die fortschreitende, sich beschleunigende Umwandlung von Rohstoffen, Energie und menschlicher Arbeitskraft in MÜLL. <b>Nur ein Krieg setzt das System immer wieder zurück auf Anfang.</b>
-</quote><p align="center">
-<p></p>
-<p></p>
-----
 
 <div align="center"> 
   <p>Besucherzähler</p>
@@ -442,13 +397,7 @@ Analyse Systemfehler: <b>Geldschöpfung</b> und <b>unendliches Wachstum</b> sind
     <img src="https://github-readme-activity-graph.vercel.app/graph?username=Artikel-278-VV&theme=xcode&hide_border=true" alt="Activity graph">
 </a>
 
-<a href="https://github.com/Znih">
-    <img src="https://github.com/Znih/XiaomingX/blob/551793bb446888a2df6be529bb9a3802ddba38b3/output/github-snake-dark.svg" />
-</a>
-
-<a href="https://github.com/Znih">
-    <img src="https://github.com/Znih/XiaomingX/blob/315b265f6f081e9104f18365412cedaab4110e99/output/github-snake.svg" />
-</a>
+---
 
 [2018_StA-Tiefenblick_MatrixHacker.webm](https://github.com/user-attachments/assets/baa2988b-0df5-467c-8cf2-4831c509d5b6)
 
