@@ -1,7 +1,7 @@
 name: Generate GitHub Contribution Snake
 
 on:
-  schedule: # 每天生成一张新的图片  有趣的 "Jeden Tag ein neues Bild generieren"
+  schedule: # "Jeden Tag ein neues Bild generieren"
     - cron: "0 0 * * *"
   workflow_dispatch:
 
@@ -9,17 +9,17 @@ jobs:
   build:
     runs-on: ubuntu-latest
 
-steps:
-  - owner: github.repository_owner
-  - name: Checkout repository
-    uses: actions/checkout@v3
-  - name: Generate GitHub Contribution Snake
-    uses: Platane/snk@v3
-    with:
-      github_user_name: ${{ github.repository_owner }}
-      outputs: |
-        output/github-snake.svg
-        output/github-snake-dark.svg?palette=github-dark
+    steps:
+      - name: Checkout repository
+        uses:  actions/checkout@v3
+      
+      - name: Generate GitHub Contribution Snake
+        uses: Platane/snk@v3
+        with:
+          github_user_name: ${{ github.repository_owner }}
+          outputs: |
+            output/github-snake. svg
+            output/github-snake-dark.svg?palette=github-dark
 
   - name: Commit and push
     run: |
@@ -29,7 +29,3 @@ steps:
       git commit -m "Updated GitHub Contribution Snake"
       git push
 
-#-- ERROR
-# Invalid workflow file: .github/workflows/generate-snake.yml#L1
-# No steps defined in `steps` and no workflow called in `uses` for the following jobs: build
-#
